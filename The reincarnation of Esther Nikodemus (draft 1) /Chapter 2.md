@@ -1,6 +1,6 @@
 # Chapter 2
 
-I could hear the front door open downstairs and a manly voice rang out. My mother was talking to him when suddenly footsteps sprinted up the stairs.
+I could hear the front door open downstairs and a manly voice rang out. My mother was talking to him when a barrage of footsteps sprinted up the stairs.
 
 “Esther\!” A man barged into the room. The first thing I noticed were his clothes. Leather armor outfitted with metal plates and clinking on his belt was a genuine sword.
 
@@ -16,26 +16,26 @@ He was a handsome man. His sharp jawline was devoid of hair and his obsidian eye
 
 My mother explained to him how after he left for the expedition, she had to call over a priest to heal me. And as it did not work, she had nearly given up hope, before I opened my eyes.
 
-My mother explained to him what had happened after he had left for the expedition. How the priest had said to prepare for a ritual right before I opened my eyes. 
+My mother explained to him what had happened after he had left for the expedition. How the priest had said to prepare for a ritual intended for dead people. 
 
 “I knew those people were quacks\!” He bellowed.
 
 “Watch what you are saying\!” 
 
-“How else wouldn’t healing magic not work\! They must have sent an unqualified priest\!” He looked like one of the demon paintings I had seen in the temple. 
+“Why else would healing magic not work\! They must have sent an unqualified priest\!”  He looked just like one of those demons the temple had paintings of. I never understood why they hung them up.
 
-“I don’t know either, but please calm down”, she pleaded with him. It was only then that he noticed the situation. He hadn’t even taken his armor off.  
+“I don’t know either, but please calm down.” She pleaded with him. It was only then that he noticed the situation. He hadn’t even taken his armor off.  
 He took a moment to collect himself. “So she doesn’t remember anything?”
 
 “That’s right she didn’t even remember me…” Victoria couldn’t stop her emotions from surfacing, breaking out into a sob.
 
-“Oh honey, come here”, now it was the wife’s turn to be consoled.
+“Oh honey, come here.” Now it was the wife’s turn to be consoled.
 
 I watched them absentmindedly. My heart grew heavy with guilt. Esther, are you watching? How am I supposed to act in this situation?
 
 A new day welcomed me as the rays of sun lit up the room and woke me up. A pleasant smell of plants filled the room. My mother had fallen asleep while watching over me again. She looked exhausted, although the smile on her sleeping face indicated otherwise. Sitting there under the light, the dust being lit looked like stars circling around her.
 
-I better get better soon.
+I decided to get better soon.
 
 From the conversations I could hear the last few days, the main topic seemed to be about money. The priest had refused payment, stating that he couldn’t accept payment for something the Goddess herself did. But our funds were trickling out with the amount of medicine being bought. 
 
@@ -61,21 +61,24 @@ My body had gotten much better the past week with all the rest and food. Today I
 
 Standing up still got me a bit lightheaded, which had become familiar by now.
 
-It was yesterday that mom suggested I help her with cooking by cutting some vegetables. She probably suggested that seeing that all I did was lie in bed reading the few books available. 
+It was yesterday that my mother suggested I help her with cooking by cutting some vegetables. She probably suggested that seeing that all I did was lie in bed reading the few books available. 
+
+The kitchen had some interesting things. A stone that water magically, literally, flowed out of. A stone that summoned fire, making cooking easier than how it was at the temple. I remember almost burning the kitchen down the first time I tried to cook something. 
 
 “Here cut these carrots into cubes, want me to show you how it’s done?”. It seemed she had gotten used to my amnesia, often asking me whether I knew something or not.
 
 “I think I got it”
 
-It had been a while since I last held a knife. Gripping it with each of my fingers wrapping around the handle, I felt the weight of the knife in my hand. I couldn’t help but involuntarily frown a little. This was a terrible knife.
+It had been a while since I last held a knife. Gripping it with each of my fingers wrapping around the handle, I felt the weight of the knife in my hand. I couldn’t help but involuntarily frown a little. It was a terrible knife.
 
-“Is it too heavy?” My mother seemed to misunderstand my inner thoughts. 
+“Is it too heavy?” My mother seemed to misunderstand. 
 
-“No, it should be fine.” It was not fine. The balance point was in an unideal position, making one use more energy than needed. And not to mention the nicks on the edge of the blade. 
+“No, it should be fine.” It was not fine. The balance point was in an horrid position, making the energy expenditure horrible. Not to mention the nicks on the edge of the blade. 
 
-Despite my inner complaints, I still made quick work on the carrots, cutting them into suitable pieces. I had eventually taken over the kitchen while living in the temple. I had originally wanted to just make something to give the monks, but upon seeing my knifework, asked me to help in the kitchen whenever I had time. 
+Despite my inner complaints, I still made quick work on the carrots, cutting them into suitable pieces. I had eventually taken over the kitchen while living in the temple. I had originally wanted to just make something to give the monks, and upon seeing my knifework, asked me to help in the kitchen whenever I had time. I had a lot of time.
 
-“Did you get better at cutting vegetables?” Did I show too much?  
+“Did you get better at cutting vegetables?” Oh, did I mess up?
+
 “You must have gotten it from me, my daughter is so talented\!” She couldn’t help but gush and gave me a squeeze.
 
 “Mom, I’m holding a knife.” Mom, mom, mom. I don’t think I will ever get comfortable saying that three-letter word.
@@ -86,7 +89,7 @@ Despite my inner complaints, I still made quick work on the carrots, cutting the
 
 “I think they taste better as stars.” I placed the knife down.
 
-“Hmm”, she pondered my statement. “Come here\!” 
+“Hmm.” She pondered my statement. “Come here\!” 
 
 A full on hugging attack. 
 
@@ -100,27 +103,27 @@ Setting the table for three, my father came down the stairs groggily.
 
 “I didn’t even get to take a sip, some guy spilled his whole cup all over me”. He lifted his spoon toward his mouth. “Wow, is it just me or did your cooking get better lately?”
 
-“It’s a secret ingredient I found lately”, my mother smirked mischievously, as he inhaled the bowl of stew.  
+“It’s a secret ingredient I found lately.” My mother smirked mischievously, as he inhaled the bowl of stew.  
 
 “Poison is it?”
 
 “What nonsense\! Why would I poison the same food as Esther and I are eating”
 
-“She didn’t deny it…”, my father murmured to me.
+“She didn’t deny it…” My father murmured to me.
 
 “What you are tasting is the talents of your daughter. She has helped me in the kitchen lately.”
 
-“Really? She did feel more mature lately, but to think my child is now all grown up…”, fake-wiping his fake tears, he gave me a few pats. 
+“Really? She did feel more mature lately, but to think my child is now all grown up…” Fake-wiping his fake tears, he gave me a few pats. 
 
-“I should give a gift to my now all grown up daughter, say it and it shall become yours”, he said theatrically, eliciting a chuckle out of his wife.
+“I should give a gift to my now all grown up daughter, say it and it shall become yours.” He said theatrically, eliciting a chuckle out of his wife.
 
 “I don’t really need anything”
 
 “She really did go and grow up…” Father slumped his shoulders. “How about this?” Rummaging through his pockets, he pulled out a silver coin. 
 
-“Isn’t that a bit much, honey? You could buy a day’s worth of food with that”
+“Isn’t a silver coin a bit much, honey? You could buy a day’s worth of food with that”
 
-“And that’s not all”, leaving the table, he came back with a book in hand.
+“Wait until you see this.” Leaving the table, he came back with a book in hand.
 
 “I heard you were interested in monsters.” It was a monster lexicon.
 
