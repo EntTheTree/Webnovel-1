@@ -1,12 +1,12 @@
 # Chapter 4
 
-“Well I see you still make bad jokes…”
+“Well I see you still make bad jokes…” She sighed.
 
-“How about a guessing game?” The girl whom I swore should be dead, got an idea that seemed to be perfect for doing a test.
+“How about a guessing game?” The girl whom I swore should be dead, threw out an idea. It seemed to be perfect for doing a test.
 
 “That sounds fun, how about we guess each other’s drawings.” I picked up a stick nearby and squatted down in the dirt.
 
-“Well I guess that works”, Eric said.
+“Well I guess that works.” Eric said.
 
 Let’s start with something easy first, something they would guess correctly. A circle for the body and head, a triangle for the beak and wings, and some lines for the feet. Scribbled into the dirt was a bird. I was quite proud of how it turned out.
 
@@ -22,13 +22,13 @@ Eric and Karrie seemed deep in thought as they squatted over the drawing, our he
 
 “Look, there's the beak and the wings, and these lines are the feet.” Pointing at my drawing, I explained to them. 
 
-“I still don’t see it”, Eric said after a momentary pause.
+“I still don’t see it.” Eric said after a momentary pause.
 
-“Me neither”, agreed the girl with the same face.
+“Me neither.” Agreed the girl with the same face as *her*.
 
 What are they talking about? Are they stupid? And since when did you become Eric’s yes-man, just stay dead\!
 
-“Well, let's see how much better you are then”, I said, practically shoving the stick to Eric. 
+“Well, let's see how much better you are then.” I said, practically shoving the stick to Eric. 
 
 “No need to get so worked up, Esther” 
 
@@ -70,27 +70,27 @@ I grit my teeth. “This game sucks.” I threw the stick to the ground.
 
 I marched out of there, stomping my feet in the process, only to have the both of them follow me. 
 
-Not wanting to talk to him anymore, I started my march towards the town square. The only problem being the winding alleys and streets all looked the same. I hadn’t really paid attention to the directions. My march got halted after a few stomps.
+Not wanting to talk to him anymore, I started my march towards the town square. The only problem being the winding alleys and streets all looked the same. I hadn’t actually paid attention to the directions. My march got halted after a few stomps.
 
 “That’s the wrong way, Esther. The fountain is this way.” He smirked at me. 
 
 Karrie joined us as Eric led the way and so the three of us began our journey through the alleys. Chatting along the way were the two of them, their topics ranged from this to that. Occasionally, I gave an affirmative “Yes” or “I see” pretending to listen as I focused all my strength in my feet instead. They were really sore. 
 
-“Hey did you hear about the dead people popping up?” I perked my ears towards Karrie.
+“Hey did you hear about the Executioner? How dead people keep popping up?” I perked my ears towards Eric.
 
 “I did see that there were more guards than usual lately” 
 
-“Finn said that his dad would get a huge amount of money if he were to catch him”
+“Finn said that his dad would give a huge reward to the person that caught him.” 
 
-“That sounds serious”, Eric put his hand to his chin, “how much are we talking about?”
+“Really?” Karrie put her hand to her chin. “How much are we talking about?”
 
-“He said 5 gold coins\!” Karrie gestured with her hands.
+“He said 5 gold coins\!” Eric gestured with his hands.
 
-“Oh my goddess”, feigning shock he said, “and so, you really believe him?”
+“Oh my goddess”, feigning shock she said, “and so, you really believe him?”
 
 “Well…”
 
-He shrugged his shoulders. “I can’t remember the last time he said something that was true”
+She shrugged his shoulders. “I can’t remember the last time that daddy’s boy said something true”
 
 “You have a point…”
 
@@ -102,7 +102,7 @@ Turning her head to having her name being called, she smiled upon seeing us. “
 
 “Oh my, how cute. Are these all your children?” The woman with the bow asked.
 
-“As if, one is more than enough for us”, father crouched down, meeting me at my eye level. “Did you make new friends already?”. 
+“As if, one is more than enough for us.” Father crouched down, meeting me at my eye level. “Did you make new friends already?”. 
 
 “Yeah, this is Eric and Karrie”
 
@@ -114,13 +114,13 @@ The woman looked at me and then my mother. “I see the resemblance. Nice to mee
 
 Father confirmed and Raviel left us, blending through the crowd of people.
 
-“I better leave before I get scolded again. See you guys next time, you too, miss Victoria\!” Eric left waving toward my mother.
+“I better leave before I get scolded again. See you guys next time, you too, miss Victoria\!” Eric left while waving toward my mother.
 
 “Did that boy just..?” Yes he did, father.
 
-“What a charming boy”, my mother waved back. “Did you come alone today, Karrie? Want to head back with us?”
+“What a charming boy.” My mother waved back. “Did you come alone today, Karrie? Want to head back with us?”
 
-“If you wouldn't mind”, Karrie said shyly.
+“If you wouldn't mind.” Karrie said shyly.
 
 With Karrie and I at the front, we began our journey home. It was a wonder how much she could talk by herself. At least she looked happy chatting away. If only she could hear my inner thoughts. 
 
@@ -164,7 +164,7 @@ My mother patted my stomach as she sat there with a somber expression.
 
 Her mood always changed whenever something happened to me. Happy, when something good happened. Sad, when something bad happened. Apparent even to me, I could see how much she loved her daughter. I must be a better daughter so that she won’t be sad so often.
 
-She left the room, seeing as my eyes drooped. Today was really tiring. I met someone who already knew Esther, someone who didn’t know her and even got to play with other kids for the first time. The skewers were good and the thought of the sweet candy I snatched from Eric, made the corners of my mouth turn up a bit. 
+She left the room, seeing as my eyes drooped. A lot had happened today. I met someone who already knew Esther, someone who didn’t know her and even got to play with other kids for the first time. The skewers were good and the thought of the sweet candy I snatched from Eric, made the corners of my mouth turn up a bit. 
 
 A sudden realization shook off my drowsiness. I had forgotten my main goal. Laying on top of my desk was my pouch still filled with the ten copper coins. The whole point of me going out to town today was to spend it. I had forgotten my main goal. This had never happened before. I couldn’t decide whether this was a good or a bad sign.
 
