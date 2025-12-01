@@ -1,17 +1,4 @@
 # Chapter 7
-
-I threw a pebble at the window and watched as it made a clinking sound, bouncing off into the moonlit grass. Making sure the house had gone quiet, I snuck out. Staying still after that magnificent sight yesterday? I couldn’t. I threw another pebble at the second floor window. This should be his room. 
-
-Bending down to pick up another pebble, the window finally opened. A welcome face peeked out.
-
-“Esther?” He rubbed his eyes. “Why are you throwing pebbles?”
-
-“I want to talk to you”
-
-“Right now?” Finn glanced at the moon. 
-
-“It’s cold out here.” 
-
 Hearing something plink at his window, Finn woke up after the third time it happened. With heavyset feet, he shuffled to the window, opening it. He thought it was one of the boys always hanging out with him. Instead, under his window stood someone unexpected. It was Esther. Her golden hair glistened in the moonlight. She was about to throw another pebble until she noticed him.
 
 “Ah, there you are." She said cheerfully.
