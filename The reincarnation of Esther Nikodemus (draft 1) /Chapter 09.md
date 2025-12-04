@@ -1,4 +1,4 @@
-# Chapter 9
+# Chapter 9: New City
 
 The steam coming from the cup of tea placed in front of me, flew gently toward the ceiling, eventually disappearing like a dream. Thrown on the dinner table was the letter Raviel had gifted my dad. The pure white piece of paper was crumpled, several creases were visible. Were you to follow those creases like a piece of origami, I would believe it would make a wonderful ball of paper. I glanced at my parents sitting at the table.
 
@@ -127,10 +127,3 @@ I observed the boy that had left town two weeks ago. He was learning the trade o
 “Did you get lost again?”
 
 I considered throwing the half eaten piece of bread at his stupid face.
-
-# Chapter 10: Eric
-
-# Notes
-
-TODO: ctrl+f just, something, that, suddenly, fix verbs, stuff, anything, everything, really, very, usually
-

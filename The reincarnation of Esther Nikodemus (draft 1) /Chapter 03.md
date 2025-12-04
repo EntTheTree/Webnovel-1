@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3: Town
 
 “Hey kid, you want to buy something?”
 
