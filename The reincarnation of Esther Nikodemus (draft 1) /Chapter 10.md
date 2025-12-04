@@ -282,24 +282,13 @@ It felt calming not being able to see anything.
 
 “I’m gonna move my hand now okay?”
 
-I stayed silent as my eyes took in the bright light outside.
-
-“Surprise\! It’s my farewell gift\!”
-
-A mass of yellow petals bloomed in front of my eyes.
+I stayed silent as my eyes took in the bright light outside. A mass of yellow petals bloomed in front of my eyes.
 
 “My mom said they represent strong bonds.”
 
 Yellow alstroemerias.
 
-“Let’s all three of us meet up again\!”
+“Did you get one from Karrie too?”
 
-It smelled disgustingly sweet.
-
-“You, me and Karrie\!”
-
-I felt my mind go blank.
-
-
-TODO: ctrl+f just, something, that, suddenly, fix verbs, stuff, anything, everything, really, very, usually
+It smelled disgustingly sweet. I felt my mind go blank.
 
