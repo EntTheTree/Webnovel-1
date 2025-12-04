@@ -1,4 +1,4 @@
-# Chapter 8
+# Chapter 8: Why
 
 “Honey, wake up”
 
@@ -77,7 +77,7 @@ My shriek filled the room as my middle finger got crushed.
 
 The hammer clattered to the floor. “That should be enough.” 
 
-He went to the wall. I want to see Victoria. He picked up a knife. I want to taste her cooking again. He took a step closer. I want her to give me a hug again.
+He went to the wall. *I want to see Victoria.* He picked up a knife. *I want to taste her cooking again.* He took a step closer. *I want her to give me a hug again.*
 
 “Mom…” I really don’t want to die.
 
@@ -131,7 +131,7 @@ The blade sliced through the air, through his neck, sending his head flying. Rol
 
 “I don’t want to die\!” I cried into his arms.
 
-The incident threw the whole town into chaos. The captain of the guards had died, his body displayed in the middle of town square for all to see. The townspeople started protesting, demanding the capture of the Executioner. The Baron had to listen to the people, lest be trampled under their angry mob. Resultingly, a bunch of guards from the surrounding towns and cities got sent to Guillain. 
+The incident threw the whole town into chaos. The captain of the guards had died, his body displayed in the middle of town square for all to see. The townspeople started protesting, demanding the capture of the Executioner. The Baron had to listen to the people, lest be trampled under their angry mob. Resultingly, a bunch of guards from the surrounding towns and cities got sent here. 
 
 My dad had investigated the secret area and found a field of growing flowers, white lilies were blooming in the dark underground. I had been caught by that very same serial killer. The guards concluded the town-wide search and concluded that he had fled the town after seeing the number of guards. The angry townspeople reluctantly accepted this, and the following incident-free days seemed to reassure them. The town was in a joyous mood.
 
@@ -190,7 +190,7 @@ I pressed my face into her arms. “Mom…”
 \*\*\*  
 Today was my birthday, or more correctly, it was Esther’s birthday. Sugar was hard to come by so the small cake in front of me was a bit surprising. Mom had splurged a bit with some help from our neighbor, Karrie's family, and baked a cake. It was a simple thing but it tickled my heart nonetheless.
 
-Invited to my first ever birthday party and Esther's fourteenth party were: my parents, Karrie’s parents, Karrie, and Eric. We had gotten much closer these past months. The cold had seeped in and the naked trees were covered in fluffy white snow. 
+Invited to my first ever birthday party and Esther's fourteenth party were: my parents, Karrie’s parents, Karrie, and Eric. We had gotten much closer these past months. The cold had seeped in and the naked trees were covered in fluffy white snow. It had begun to melt today.
 
 “Congratulations Esther\! May the goddess watch over you\!” Karrie said enthusiastically. Yeah, no thanks.
 
@@ -230,10 +230,4 @@ By the time I blinked, dad had already grabbed her by the neck, lifting her off 
 
 Raviel didn’t seem distressed in the least.
 
-“Duke Nikodemus”
-
-She closed her eyes.
-
-“Your father.”
-
-I could hear something crash as she uttered that last part. Dad had thrown her on the floor. Gale Nikodemus, that was my father’s name. Son of the Duke of North.
+“Your father.” She uttered.

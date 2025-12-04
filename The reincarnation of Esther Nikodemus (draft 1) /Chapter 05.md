@@ -1,4 +1,4 @@
-# Chapter 5
+# Chapter 5: Church
 
 Sitting on the prayer bench, I couldn’t help but feel a little irked as I stared at the marble statue of the Goddess. Today was the day of the Goddess, the seventh day of the week. 
 
@@ -159,7 +159,7 @@ Following her, I looked at my mother as she disappeared from my view. She had ta
 
 “This one will do.” Turning over a rock, a bunch of insects scrawled around as their home had disappeared. I took note of a particular worm as it squirmed there in the dirt. It was disgusting how it looked as it twirled into itself in a continuous motion. Was the bright midday sun burning it? Why don’t you just dig downwards instead, you incompetent worm. Would I have done the same thing had I been reincarnated as it instead?
 
-I tried stabbing it with a stick and it squirmed away, seemingly unharmed. I stabbed another one, same thing happened. I can’t even kill a single stupid insignificant worm.
+I tried stabbing it with a stick and it squirmed away, seemingly unharmed. I stabbed another one, same thing happened. I can’t even kill a single stupid insignificant worm in this world.
 
 “Whoah, look at that beetle\!”
 

@@ -1,4 +1,4 @@
-# Chapter 7
+# Chapter 7: Finn
 
 Hearing something plink at his window, Finn woke up after the third time it happened. With heavyset feet, he shuffled to the window, opening it. He thought it was one of the boys always hanging out with him. Instead, under his window stood someone unexpected. It was Esther. Her golden hair glistened in the moonlight. She was about to throw another pebble until she noticed him.
 
