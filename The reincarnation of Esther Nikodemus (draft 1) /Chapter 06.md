@@ -1,4 +1,4 @@
-# Chapter 6: chapter title
+# Chapter 6: 
 
 I felt like this situation had happened before. 
 
