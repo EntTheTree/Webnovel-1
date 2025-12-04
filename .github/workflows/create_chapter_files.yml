@@ -1,0 +1,121 @@
+name: Split All Chapters into Individual Files
+
+on:
+  push:
+    paths:
+      - '**/All chapters.md'
+  workflow_dispatch: {}
+
+jobs:
+  split-chapters:
+    runs-on: ubuntu-latest
+    
+    permissions:
+      contents: write
+    
+    steps:
+      - name: Checkout Repository
+        uses: actions/checkout@v4
+        with:
+          fetch-depth: 0
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.x'
+
+      - name: Split chapters and update files
+        run: |
+          python3 << 'EOF'
+          import os
+          import re
+          from pathlib import Path
+
+          def split_chapters(all_chapters_path):
+              """Split the All chapters.md file into individual chapter files."""
+              
+              # Read the entire file
+              with open(all_chapters_path, 'r', encoding='utf-8') as f:
+                  content = f.read()
+              
+              # Split by chapter headers (# Chapter N or # Chapter N: Title)
+              # Pattern matches: "# Chapter" followed by a number, optionally followed by ": Title"
+              chapter_pattern = r'^(# Chapter \d+.*?)(?=^# Chapter \d+|\Z)'
+              chapters = re.findall(chapter_pattern, content, re.MULTILINE | re.DOTALL)
+              
+              if not chapters:
+                  print(f"No chapters found in {all_chapters_path}")
+                  return []
+              
+              # Get the directory containing the All chapters.md file
+              chapters_dir = os.path.dirname(all_chapters_path)
+              
+              updated_files = []
+              
+              for chapter_content in chapters:
+                  chapter_content = chapter_content.strip()
+                  if not chapter_content:
+                      continue
+                  
+                  # Extract chapter number from the header
+                  header_match = re.match(r'^# Chapter (\d+)', chapter_content)
+                  if not header_match:
+                      continue
+                  
+                  chapter_num = int(header_match.group(1))
+                  
+                  # Create filename with zero-padded number
+                  filename = f"Chapter {chapter_num:02d}.md"
+                  filepath = os.path.join(chapters_dir, filename)
+                  
+                  # Check if content has changed
+                  existing_content = ""
+                  if os.path.exists(filepath):
+                      with open(filepath, 'r', encoding='utf-8') as f:
+                          existing_content = f.read().strip()
+                  
+                  if chapter_content != existing_content:
+                      with open(filepath, 'w', encoding='utf-8') as f:
+                          f.write(chapter_content + '\n')
+                      updated_files.append(filename)
+                      print(f"Updated: {filepath}")
+                  else:
+                      print(f"No changes: {filepath}")
+              
+              return updated_files
+
+          # Find all "All chapters.md" files in the repository
+          for root, dirs, files in os.walk('.'):
+              # Skip .git directory
+              if '.git' in root:
+                  continue
+              
+              for file in files:
+                  if file == 'All chapters.md':
+                      all_chapters_path = os.path.join(root, file)
+                      print(f"\nProcessing: {all_chapters_path}")
+                      split_chapters(all_chapters_path)
+
+          print("\nChapter splitting complete!")
+          EOF
+
+      - name: Check for changes
+        id: check_changes
+        run: |
+          git add -A
+          if git diff --staged --quiet; then
+            echo "No changes to commit"
+            echo "has_changes=false" >> $GITHUB_OUTPUT
+          else
+            echo "Changes detected"
+            echo "has_changes=true" >> $GITHUB_OUTPUT
+          fi
+
+      - name: Commit and push changes
+        if: steps.check_changes.outputs.has_changes == 'true'
+        run: |
+          git config --global user.name 'github-actions[bot]'
+          git config --global user.email 'github-actions[bot]@users.noreply.github.com'
+          git commit -m 'Auto-update individual chapter files from All chapters.md'
+          git push
+
