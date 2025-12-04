@@ -1,4 +1,4 @@
-# Chapter 6
+# Chapter 6: chapter title
 
 I felt like this situation had happened before. 
 
@@ -186,7 +186,7 @@ His wife let out another sigh. “I don’t understand why you are telling other
 
 “Speaking of, what happened to that job of yours?”
 
-“Dont even mention it.” He leant back into his chair crossing his arms. “They suddenly cancelled it, saying some nonsense about how we weren’t the right fit”
+“Don’t even mention it.” He leant back into his chair crossing his arms. “They suddenly cancelled it, saying some nonsense about how we weren’t the right fit”
 
 “Hah, if you’re not the right fit then I wonder who is?”
 
