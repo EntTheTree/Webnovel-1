@@ -180,6 +180,6 @@ Why was this always happening?
 
 “I’m sorry.”
 
-Why couldn’t we just have happy days, why must I always feel this way. In this life and my previous life. 
+Why couldn’t we just be happy? Why must I always feel this way? In this life and my previous life. 
 
-I watched as my father carried my crying mother to the couch. I couldn’t help but do the same as I stood there.
+I watched as my father carried my crying mother to the couch. I couldn’t help but do the same as I stood there feeling something wet roll down my face.

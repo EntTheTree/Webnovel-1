@@ -198,7 +198,7 @@ Victoria fed me one of the bits of food on the table. “I’m just glad nothing
 
 “It adds to their charm don’t you think?” She covered her mouth as she gave out a small laugh. 
 
-“It’s a wonder how you two are still in your honeymoon phase…” She glanced at her husband. He just shrugged.
+“It’s a wonder how you two are still in your honeymoon phase…” She glanced at her husband. He shrugged.
 
 Karrie’s father thought for a moment. “Maybe they got scared off by the Executioner?” Hearing the moniker, Eric and Karrie jumped a little.
 
