@@ -88,7 +88,7 @@ I could see my father clench his fist. “Good to see you too, father. We were w
 
 “It’s quite all right, thank you. We don’t want to take up more of your time than necessary”
 
-The priest stood still for a moment, still smiling. “What a shame I just got these new tea leaves from Barre, it's not often you get things from the capital here you know?” He thought for a second. “You must be talking about the father who joined us recently.”
+The priest stood still for a moment, still smiling. “What a shame I just got these new tea leaves, it's not often you get things from the capital here you know?” He thought for a second. “You must be talking about the father who joined us recently.”
 
 “Speaking of which, he consulted with me on an interesting matter of his” He turned his head away and stared at me. His jovial expression was still plastered on his face. 
 

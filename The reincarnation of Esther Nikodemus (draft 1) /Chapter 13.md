@@ -2,7 +2,7 @@
 
 “This is your room Miss, do you have any questions?”
 
-The room was as large as our house in TKstartertown. It had a big bed, a big closet and a big vanity desk. Reflected on the mirror of the vanity desk was me. Long blond hair and puffy blue eyes. I had gotten used to seeing this face whenever something shiny reflected it, however today it looked completely bizarre. 
+The room was as large as our house in Barre. It had a big bed, a big closet and a big vanity desk. Reflected on the mirror of the vanity desk was me. Long blond hair and puffy blue eyes. I had gotten used to seeing this face whenever something shiny reflected it, however today it looked completely bizarre. 
 
 Outside the big window situated on the third floor was the garden. A green color had begun taking over the place and I saw some flowers looking up at me from the square and circle bushes. I closed the curtains.
 
@@ -158,13 +158,13 @@ My grandfather said something first upon spotting his wife. “Rosalyn.” He sm
 
 My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grace.” I had wanted to call her grandmother. 
 
-“What a sweet voice, can you come closer?” I stared at her smile.
+“What a sweet voice, can you come closer?” I stared at her black hair. 
 
-“You won’t mind this old blind woman feel your face will you?” I stared at her smile holes.
+“You won’t mind this old wrinkly woman feel your face will you?” I stared at her crow’s feet.
 
-“My\! You look just like Victoria\!” I stared at the mole under her eye.
+“My\! You look just like Victoria\!” I stared at the mole under her eye. 
 
-“Hello, Esther. My name is Rosalyn Nikodemus.” I stared at her crow's feet.
+“Hello, Esther. My name is Rosalyn Nikodemus.” I stared at her dimples.
 
 “But I would prefer it if you would call me grandmother.” I had seen her before. 
 
