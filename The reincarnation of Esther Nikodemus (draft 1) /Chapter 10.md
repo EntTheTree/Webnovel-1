@@ -4,11 +4,11 @@ I put the rest of the bread roll into my pocketbook. “I’m not lost.”
 
 “That so?” He plopped down beside me. My golden hair fluttered in the air as I bounced off the bench. The wooden planks were bending a bit.
 
-“What are you looking at?” We sat staring in the same direction looking at the other people walking by. 
+“I heard you will be back by spring?” I nodded. We sat staring in the same direction looking at the other people walking by. 
 
 “Are you here with your mom?” I didn’t see her with him.
 
-“Yeah, we got some extra seeds from TKanothercityname.” He pulled out a round black seed the size of my fingertip. Its outer shell felt rough as it laid limply on my palm, making a scratching sound when I poked it.
+“Yeah, we got some extra seeds from Klippel.” He pulled out a round black seed the size of my fingertip. Its outer shell felt rough as it laid limply on my palm, making a scratching sound when I poked it.
 
 “I don’t get why no one buys them.” He pulled out another one and popped it into his mouth, crunching it between his teeth. I could see a few bits of the outer shell fall out of his mouth. It looked and sounded just like eating eggshells. 
 
@@ -60,15 +60,11 @@ Eric would give me a long explanation each time I pointed to an object. He seeme
 
 He gave me a big professional smile. “Thanks, Esther. I will take that advice to heart.”
 
-TK add inn female lead having some trouble
-
 I skipped around the different shops and stalls all the while dragging along Eric. His shoulders slumped as he dragged his feet after me. That’s weird. I thought he was bored? The roads came to an end, opening up to a square with a clocktower standing in the middle. And below that a crowd had formed. 
-
-The gaggle of people formed a circle while they applauded and sent ou
 
 The gaggle of people was centered around something. Applause and excited voices could be heard ringing as I tried to get a glimpse of whatever that had them this excited. Standing between two adults, I glanced under their armpits.
 
-Mint green hair reminiscent of the tea cups I had seen blew gently in the air. It looked almost to turn blue against the backdrop of the sky. A pair of soft round eyes, the color of fresh summer leaves, looked flustered as she held the hands of an old woman kneeling before her. She looked like a doe clad in pastel garments as she tried to help the elderly woman off the dirty ground. 
+Mint green hair reminiscent of the tea cups I had seen blew gently in the air. It looked almost to turn blue against the backdrop of the sky. A pair of soft round eyes, the color of fresh summer leaves, looked flustered as she held the hands of an old woman kneeling before her. She looked like a doe clad in pastel dress as she tried to help the elderly woman off the dirty ground. 
 
 A young man stood behind her, diagonal to the side, with his hands behind his back. He had an impassioned look standing guard behind her, the scabbard hanging on his hip indicating his work.
 
@@ -122,7 +118,7 @@ The crowd had long dispersed and only the two of them remained, she sat on a ben
 
 “I’m Esther, I’m currently visiting this city. Oh, and I’m fourteen.” I said my perfect introductory line. The man furrowing his eyebrows didn’t bother me at all. 
 
-“She’s still using that introduction?” I could hear Eric mutter regretfully behind me before also introducing himself. It was different from how I said it but it should do. 
+“She’s still using that introduction?” I could hear Eric mutter behind me before also introducing himself. It was different from how I said it but it would do. 
 
 The girl let out a chuckle, her sweet voice tickled my ears a bit. “My name is Lavenza, I’m currently traveling with this grumpy boy to see the world.” She gestured to the adult-looking boy. “And I’m sixteen”. Her pure white teeth blinded my eyes as she smiled, making me almost shield my eyes. She must have been a noble as I stared at her elegant sense of air.
 
@@ -200,7 +196,7 @@ She began focusing and a golden circle appeared over my left hand, the circle lo
 
 “It’s fine.” I stood up from the bench.
 
-“It was fun talking to you two, but it’s getting late, we better take our leave now.” The sun had begun dipping in the sky, making the towering clock tower cast a TKsizable shadow across the ground. 
+“It was fun talking to you two, but it’s getting late, we better take our leave now.” The sun had begun dipping in the sky, making the towering clock tower cast a long  shadow across the ground. 
 
 “Esther, wait-”
 
@@ -291,4 +287,3 @@ Yellow alstroemerias.
 “Did you get one from Karrie too?”
 
 It smelled disgustingly sweet. I felt my mind go blank.
-

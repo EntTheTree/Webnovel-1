@@ -196,6 +196,6 @@ The youngest came up to me. She had the same black hair and eyes as all the dire
 
 “Why not?” Her little sister asked curiously. 
 
-“You don’t need to introduce yourself to the servants.” She smirked at me.
+“You don’t need to introduce yourself to the servants.” 
 
-My mother looked hurt from the comment as I saw her shoulders sink into herself. I see, now I understood why mom and dad wanted to leave as fast as possible.
+She smirked at me.

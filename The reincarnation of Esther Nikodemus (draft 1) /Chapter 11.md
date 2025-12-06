@@ -4,16 +4,26 @@
 
 I was about to put the piece of tofu in my mouth. “No?”
 
-“Well, let me tell you anyway.”
+“Well, let me tell you a story.”
 
-TK add in some dialogue discussing why life is suffering even when it doesn’t feel like that.
+There once was a zen master who was praised by his neighbors as a person living a pure life. In his neighborhood was a beautiful girl living with her parents. One day, without any warning, they discovered that she was with child. This made her parents furious. She would not say who the man was, but after much shouting and tears, finally said a name, Hakuin, the zen master. In great anger the parents went to the master. 
 
-“Did you understand?”
+“Is that so?” Was all that he would say. 
+
+The girl had a successful birth and the child was brought to Hakuin, by this time he had lost all his reputation, which did not trouble him. But he took very good care of the child, he obtained milk from his neighbours, and everything else the little one needed.
+
+A year later the young mother could not tolerate it any longer. She told her parents the truth, that the real father of the child was a young man working in the fish market. The mother and father of the girl at once went to Hakuin to ask his forgiveness, to apologize at length and to get the child back again. Hakuin was willing. In yielding the child all he said was:
+
+“Is that so?”
+
+The monk finished his story. “Did you understand?”
 
 I picked up a piece of sauteed mushroom. “Not really.”
 
+“Hmm”, the monk hummed. “Is that so?”
+
 \*\*\*  
-I woke up laying in bed, did I pass out? Where’s Eric? I looked around and saw that it was the inn we had rented. My mom was sleeping on a chair by the bedside. I couldn’t help but think this scene was familiar. Once again, I had made my mom sleep in that uncomfortable position. Sorry.
+I woke up laying in bed, did I pass out? Where’s Eric? I looked around and saw that it was the inn we had rented. My mom was sleeping on a chair by the bedside. This situation felt very familiar. Once again, I had made my mom sleep in that uncomfortable position. Sorry.
 
 She opened her eyes as I fumbled around on the bed. 
 
@@ -31,9 +41,9 @@ She opened her eyes as I fumbled around on the bed.
 
 “Where’s Eric?” I saw my gloves on the nightstand.
 
-“He left saying he had to go with his mother.” I see. “They left yesterday to TKstartertown.
+“He left saying he had to go with his mother.” I see. “They left yesterday for Barre.”
 
-“Yesterday? What about the magic gate?” I needed to quickly get ready.
+“Yesterday? What about the magic gate?” I needed to get ready quickly.
 
 “Don’t you worry, we are extending our stay for another night.”
 
@@ -147,7 +157,7 @@ She explained that after carrying me back, he had found the two of them strollin
 
 “What do you mean?”
 
-“You looked fine before I tried to use healing magic. Did you feel unwell from that?”
+“You looked fine before I tried to use healing magic. Did you become unwell from that?”
 
 In some sense it did, however the real reason was that my emotions had run rampant. I don’t really understand why I reacted that way, it just did. It didn’t feel good.
 
@@ -288,4 +298,3 @@ My dad went up to him and showed the token he had received from Raviel. It ensur
 I felt something push me as my body fell forwards into the shimmering surface.
 
 “See you on the other side\!” I heard my dad say.
-

@@ -10,7 +10,7 @@ The sirens were still blaring and occasional shouts could be heard surrounding t
 
 It was the detective that has been chasing me for the past few weeks. 
 
-I had a nagging feeling of being watched and got my suspicions confirmed when he showed up at the temple. He had asked me a bunch of questions but not once did he write down my answers. He just stared at me. I couldn’t help but stare back at his peculiar scar over his left eye.
+I had a nagging feeling of being watched and got my suspicions confirmed when he showed up at the temple. He had asked me a bunch of questions but not once did he write down my answers. He just stared at me. I stared back, at his peculiar scar over his left eye.
 
 In this bustling concrete jungle of a city, stood a lonesome temple on the outskirts of top of a hill. Instead of skyscrapers surrounding it, trees and plants did instead. Having nowhere else to go, I eventually found myself standing before this very place. A monk sweeping the grounds had greeted me, introduced himself and then broke out into a long winded lesson, regaling the history of the temple. 
 
@@ -51,7 +51,7 @@ The officer couldn’t help but ask after seeing the dead body of the girl. He h
 “Good riddance.” Draping a sheet of cloth over the girl, the officer began with his report.
 
 \*\*\*  
-My hands lit up and I injected the girl with my divine mana. It didn’t work.
+My hands lit up as I injected the girl with my divine mana. It didn’t work.
 
 “Father\!” The mother looked distraught, “My daughter, she will wake up won’t she? She must be just sleeping, right?”
 
@@ -99,35 +99,35 @@ I rummaged through my bags to find something to write on, and while the mother h
 
 The first thing I saw when I opened my eyes was a beautiful crying woman. An angel? That can’t be. I can’t be in heaven. The woman seemed to be shocked about something. Her expression mirrored the expression of the man next to her, who wore some really gaudy white clothes reminiscent of the priests that had visited the temple. 
 
-Didn’t I die? I tried to ask them but my voice failed to make a sound. Glancing downwards the view shocked me. This wasn’t my body. As I thought of moving my hand, a small childlike hand moved accordingly instead. An unnatural gold-colored hair flowed by the sides of my view and my chest had gotten a bit smaller… 
+Didn’t I die? Glancing downwards the view shocked me. This wasn’t my body. When I thought of moving my hand, a small childlike hand moved accordingly instead. An unnatural gold-colored hair flowed brightly down my face and my chest had gotten a bit smaller… 
 
-This must be a dream, but the aches in my body soon banished that thought. Everything hurt as I laid there in the bed. The pain was even worse than being shot.
+This had to be a dream, but my body ached too much for me to really believe that. Everything hurt as I laid there in the bed. The pain was even worse than being shot.
 
-Using all the strength I could muster, I focused my attention on the woman. “Who are you?” Even my voice was different. 
+With all the strength I could muster, I focused on the woman. “Who are you?” Wow, even my voice was different. 
 
-I stared absentmindedly at the bowl of porridge in my hands. The warmth from it seeped through my hands, heating up my body a little. Its grayish color didn’t exactly whet my appetite but as the flying spoon flew toward my mouth I had to accept it nonetheless. 
+I stared absentmindedly at the bowl of porridge in my hands. The warmth from it seeped through my hands, heating up my body a little. Its grayish color didn’t exactly whet my appetite but as the floating spoon flew toward my mouth I had to open it.
 
 *One shouldn’t judge a book by its cover,* I remembered hearing someone say. A subtle sweetness enveloped my tongue as the porridge spread through my mouth and down my throat, warming it up.
 
-She looked at me with crescent moon shaped eyes. “How is it?” 
+The woman looked at me with crescent moon shaped eyes. “How is it?” 
 
-“It’s good” My childlike voice rang out. “What is it?” 
+I opened my mouth. “It’s good.” And a childlike voice rang out. “What is it?” 
 
-“I’m glad”, she said with a big smile, “it’s oat porridge, I used to make it whenever you would get sick”. I accepted another spoonful from her.
+“I’m glad”, she said with a big smile. “It’s oat porridge, I used to make it whenever you would get sick”. I accepted another spoonful from her.
 
-This woman was supposedly my mother. A pretty woman with golden hair the same as mine and brilliant blue eyes reminiscent of a cloudless blue sky. Her youthful stature would make one wonder if she was a actual mother, her age doesn’t show at all.
+This woman was supposedly my mother. A pretty person with golden hair, the same hue as mine, and blue eyes reminiscent of a cloudless blue sky. Her youthful appearance would make one wonder if she actually was a mother, her age didn’t show at all.
 
-According to this woman, Victoria, my name was Esther, 13 years old. I had been struggling with illnesses my whole life but it was especially bad this time, even putting me on the edge of death. The priest had said that it was a miracle as someone not accepting healing magic was a sure sign of death. Although he had no answers as to why I didn’t have any memories.
+According to this woman, Victoria, my name was Esther, 13 years old. I had been struggling with illnesses my whole life but it was especially bad this time, even putting me on the edge of death. The priest had said that it was a miracle as a person rejecting healing magic was a sure sign of death. He had no answers as to why I didn’t have any memories, much to Victoria’s chagrin.
 
-Healing magic. Magic. I don’t really know what to expect anymore. But I knew for a fact by instinct, that the one that was supposed to be in this body, Esther, was dead. I didn’t feel the need to tell him that. Victoria looked gleefully at the now empty bowl of porridge. 
+Healing magic. Magic. I didn’t really know what to expect anymore, however I knew for a fact by instinct, that the one that was supposed to be in this body, Esther, was dead. I didn’t feel the need to tell them that. Victoria looked gleefully at the now empty bowl of porridge. 
 
-A day had passed since I’ve taken over Esther’s body. My body still ached all over but speaking had become less of a strain, so I passed the time by asking a bunch of questions to Victoria.
+A day has passed since I’ve taken over Esther’s body. My body still hurts all over but speaking has become less of a strain, resulting in me passing the time by asking a bunch of questions to Victoria.
 
-This country was called the Guillain Empire and it was currently year 563 of the imperial calendar. We lived in some town ruled by some baron whose name I couldn’t remember. This doesn’t sound like the earth I knew.
+This country was called the Guillain Kingdom and it was currently year 563 of the common calendar. We lived in some town ruled by some baron whose name I couldn’t remember. This was totally different from the earth I knew.
 
 “A planet? Is it some kind of plant?” She was sitting on a chair by my bedside. 
 
-“It’s not a plant, I think, I just remembered the word”
+“It’s not a plant, I think. I just remembered the word.”
 
 Her eyes were filled with hope. “Really? Do you remember anything else?”
 
@@ -141,25 +141,23 @@ She put her hand onto my head and began patting me. It felt oddly comforting.
 
 “Of course\!” She pumped her fists, cheering me on.
 
-“Do I have a dad?”
+“Do I have a father?”
 
-“Oh…” She looked like a wilted flower.
+“Oh…” She looked like a wilted flower. It was kind of amazing how fast she flipped between her emotions.
 
-“He’s on a monster expedition”
+“He is currently out hunting monsters.”
 
-“Monsters? They sound dangerous”
+“Hunting monsters? That sounds dangerous.” I imagined monsters like big snakes and dragons and… I didn’t know any more monsters. 
 
 “They can be…” She looked out the window. “But don’t you worry a bit my little pumpkin, your father is stronger than he looks\! Why do you think I married him?”  
-She began singing his praises. I could tell from the way she spoke about her husband that they were a happy couple.
-
-I searched my memories for some involving my father but quickly stopped. It was a stupid idea. 
+She began singing his praises. I could tell from the way she spoke that they were happily married. I searched through my memories for something involving my father but quickly stopped. It was a stupid idea. 
 
 “Do you think he will be glad to see me?”
 
 “Why do you say that?” Her concerned face came a bit closer as she held my hands.
 
-“I don’t remember him at all.” Clenching my hands in her own, she pulled me into a hug. 
+“I don’t remember him at all.” I felt my hands being squeezed and something warm wrapping around me. She had pulled me into a hug. 
 
-“It doesn’t matter my baby, we would still love you all the same. There is always time for new memories, and who knows? Maybe your memories will come back tomorrow?”
+“It doesn’t matter if you remember us or not, just know that we will love you all the same. There is always time for new memories, and who knows? Maybe your memories will come back after a good night’s sleep? You can see your father tomorrow too.”
 
-I could feel the warmth in her words as she hugged me, warming up my own body. A twinge of guilt took its place in my heart, where her body warmth had seeped into. I didn’t want to let go of this warmth. 
+I could feel the warmth in her words as she swaddled me. It warmed up my body, however a twinge of guilt took root in my heart, where her body warmth had managed to seep into. I didn’t want to let go of this warmth.
