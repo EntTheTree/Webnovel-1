@@ -156,7 +156,7 @@ My grandfather said something first upon spotting his wife. “Rosalyn.” He sm
 
 “You mean?”
 
-My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grace.” I had wanted to call her grandmother. 
+My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grace.” I tried to say grandmother.
 
 “What a sweet voice, can you come closer?” I stared at her black hair. 
 
@@ -168,6 +168,6 @@ My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grac
 
 “But I would prefer it if you would call me grandmother.” I had seen her before. 
 
-She looked happier here but it was still her. I thought it was a coincidence that Karrie had looked like Ann from my previous life. Now I finally understood. Just like with Ann. People I had killed popped up in this world, it made no sense otherwise.
+Karrie had been the only person I recognized from my previous life. A coincidence, I convinced myself, it didn’t make sense otherwise. Yet here was another case. She sat there smiling, not even noticing that my eyes were stabbing into her. 
 
-I had killed this woman.
+I had killed this woman before.
