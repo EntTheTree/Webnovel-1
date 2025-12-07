@@ -2756,7 +2756,7 @@ My grandfather said something first upon spotting his wife. “Rosalyn.” He sm
 
 “You mean?”
 
-My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grace.” I had wanted to call her grandmother. 
+My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grace.” I tried to say grandmother.
 
 “What a sweet voice, can you come closer?” I stared at her black hair. 
 
@@ -2768,133 +2768,163 @@ My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grac
 
 “But I would prefer it if you would call me grandmother.” I had seen her before. 
 
-She looked happier here but it was still her. I thought it was a coincidence that Karrie had looked like Ann from my previous life. Now I finally understood. Just like with Ann. People I had killed popped up in this world, it made no sense otherwise.
+Karrie had been the only person I recognized from my previous life. A coincidence, I convinced myself, it didn’t make sense otherwise. Yet here was another case. She sat there smiling, not even noticing that my eyes were stabbing into her. 
 
-I had killed this woman.
+I had killed this woman before.
 
-# Chapter 14
+# Chapter 14: duchess
+
+The tower of cookies and cakes cast a shadow across my empty porcelain plate. They were stacked on top of another, making it easy for one to reach over and serve themselves. My mother and grandmother sipped on their tea as they chatted in the gazebo, shading them from the midday sun. 
 
 “It’s been a while since I’ve had a tea party, how joyous.”
 
 “Likewise, Your Grace.”
 
-“How long are you going to keep calling me that?” She blew gently on the cup and took a sip.
+“How long are you going to keep calling me that? I already gave you permission long ago.” 
 
-“Yes, Lady Rosalynn.”
+My mom paused for a second. “Then, let me call you Lady Rosalyn”
 
-“Hmm, that works too.”
+“Hmm, that works too.” She sipped her cup.
 
-It was a surreal scene. Grandfather and father had gone to fix some paperwork making us three the ones left. My mom and my grandmother, who I had once killed, were happily chatting and reminiscing about the past. Her familiar voice had me rooted to my seat, it rang out with clear intonation and had a warmth to it. It was hard to listen to. The plate of sweets and cookies served to me stood there, untouched. Shaded from the midday sun, the two of them talked about this and that sitting under the gazebo, the mention of my name tickled my ears.
+Father had left with the Duke to go fix some paperwork, making us three the only ones left. It was surreal. My mom and grandmother, who had the same face as one of my victims, were talking with each other. Her familiar tone of voice made my stomach churn. It rang out with clear intonation as it grazed my ears. It was hard to listen to. The mention of my name made my shoulders flinch.
 
 “Have you planned her debut yet?”
 
-A social debut was a party of some sort, the intention being to introduce children to society. The biggest debut party was held in the capital, but smaller and less glamorous debuts could be found strewn across the bigger cities across the empire. It was common for nobles to debut the year they turned fifteen. 
+Debut? I heard my mother talk about that once. It was a party of some sort, the intention being to introduce children of a suitable age to society. Debuts in all forms and sizes were hosted all across the kingdom but the most important one was the royal ball. It was there noble children would formally make their appearance and start contributing to their noble house.
 
-“We are not planning to stay here for long, a month at most…”
+“So much has happened that we haven’t had the chance to think about it…”
 
-“Is that right?”
+“Is that so?”
 
-“And besides, we don’t have the finances to attend, we are currently living as commoners as you may have heard.”
+“Besides, debuts aren’t that common for people like us.”
 
-“It’s a shame really.” She put her hand to her cheek. “Your daughter looks so similar to you when you were younger. She would have easily been the flower of the debut ball.” 
+“What a shame it is. I had liked to see her attend the royal ball next year.”
+
+“Your Grace…”
+
+“Why do you sound so sorrowful? Just seeing you three doing so well fills my heart.” Her hand slid across the table surface before finding her cup. She took a sip. 
 
 “Has Galen told you about my proposition?”
 
-“He has.” My mom lowered her eyes.
+My mom slumped her shoulders. “He has.”
 
-“Would you two be willing to accept?”
+“And your answer?”
 
-“Lady Rosalyn.” She stared straight ahead. “We are currently living a happy and comfortable life. I have my trusty husband and my lovely daughter by my side, they mean everything to me.”
+“Lady Rosalyn, I’m currently living a happy life together with my husband and sweet daughter. Just having them by my side is enough for me.” 
 
-“I see. I offered it in the hopes of it being an adequate apology, however my old age must by showing. I should have just done this.” She put down her cup gently.
+“I see, it must have been too presumptuous of me. It was intended to be my apology, yet I forgot the most important thing.” She straightened out her posture.
 
-“As the Duchess of house Nikodemus, I Rosalyn Nikodemus, want to formally apologize to you.” She bowed deeply enough to touch the table.
+“As a Duchess of the Guillain Kingdom, I, Rosalyn Nikodemus, want to formally apologize to you.” She bowed her head, nearly touching the table.
 
 “I am sorry.”
 
-My mom flew upwards flustered. “Your Grace\! You shouldn’t bow your head to someone like me\!”
+“Your Grace\! You shouldn’t bow your head to someone like me\!” The chair nearly fell as she stood up. 
 
-“Oh hush, I can apologize to my daughter can’t I?”
+“Why can’t I apologize to my daughter?”
 
 “Rosalyn…”
 
-“Would you accept this selfish dying woman's apology?”
+“Victoria, you are and will always be one of my precious daughters. Even if we don’t share the same surname, I want you to remember that.” 
+
+She still had her head bowed. “Would you accept this selfish dying woman's apology?”
 
 “Of course\! Please lift your head\!”
 
-“You are still too soft, Victoria.” Rosalyn furrowed her eyebrows. “But thank you dear, my heart feels lighter now.” A gold circle formed in front of her mouth.
+She smiled gently
 
-“I’m glad.” A smile crept onto her face. “I’ve never once held you responsible for what happened, you never did anything to me.”
+She softened her eyes. “All these years and you are still the same. Thank you dear, my heart feels lighter now.” It dazzled, a golden circle had appeared. 
 
-My grandmother looked determined. “Exactly. I did nothing.” 
+“I’m happy to hear that, but there’s nothing to apologize for. You didn’t do anything to me.”
 
-“My offer still stands, please consider it.”
+“Exactly. I did nothing.” She turned her gaze downwards.
 
-“I shall try”
+My mom opened her mouth a few times but in the end, nothing was said. Our tea had cooled down, no longer requiring us to blow on it. The only sound I could hear were the rustling trees as the wind shook the leaves. My plate was still empty.
 
-With the situation resolved, we sat in silence letting the cool wind feel our faces.
-
-“Would you grant another wish of mine?”
+“Would you grant a wish of mine?” My grandmother broke the silence.
 
 “Of course, what is it?”
 
-“Could you lend me your daughter when we arrive? I didn’t have the chance to get to know my granddaughter last time.”
+“Could you ask if Esther would want to have occasional tea parties with me?” 
 
-The atmosphere in the Estate has gotten lighter and livelier ever since the Lady of the house was back in her rightful place. Servants and maids alike could be heard whispering about how healthy and happy she looked. It didn’t feel like we were preparing for her passing at all. The priests must have been wrong about the diagnosis, I heard them surmise. Walking down the hallway on the fourth floor, the gossiping maids smiled at me warmly as I passed them by. I was on my way to have a private tea party with the Duchess. 
+“Tea parties?”
 
-Knocking on the huge door, a voice inviting me in could be heard. The Duchess’ room was twice the size of mine on the third floor. All the small bits and bobs of decoration had been removed, making it look minimalistic, frugal even. The Duchess was sitting at a table conversing with a maid.
+“You may be too busy to humor me at the estate and I want to get to know my last granddaughter.” 
 
-I bent my leg behind me and grabbed the hem of my skirt, giving a curtsy. “Good afternoon, Your Grace.”
+My mom turned towards me, an expectant look on her face. I didn’t have any real reason to turn down her wish, nonetheless, her gaze staring at me made my eyes flinch. She was staring straight into my eyes. How did she know where my eyes were? 
 
-“My, have you already learnt noble etiquette? How was her curtsy, Alice?” 
+“It would be an honor, Your Grace.”
 
-“It looked graceful and practiced.” The maid with long straight brown hair said. The Duchess beamed.
+“My\! Listen to her talk, did you teach her?”
 
-“Here take a seat, I heard you liked sweets.”
+My mom giggled. “We had ample time on our way to the capital.”
 
-“Thank you, I shall do so.”
+The atmosphere in the estate had gotten livelier, back when we first arrived the servants and maids had a quiet disposition. They talked to each other in a low tone, and their feet shuffled quietly across the floor, as if they had been ordered to not make a sound. Now that the Lady of the house was back at her rightful place, everything turned upside down. 
 
-“Even her manner of talking is elegant.” She covered her mouth, turning excitedly to her maid.
+Light footsteps were heard in the halls, the same with talking and gossip. It was confusing, no one acted as if the Duchess had a month at best of her life. Even the Duchess didn’t act like it as she went around being led by her personal maid greeting everyone. She looked healthy to me. The diagnosis must have been bogus, I thought while walking on the fluffy carpet. My grandmother had invited me to tea today. 
 
-On the table stood a myriad different desserts, a pink colored cake, dried and fresh fruits, and some sweet smelling cookies. They looked to be freshly baked. Still, the thing that grabbed my attention, making the desserts a mere distraction, was her face. She had the same smile as Victoria, it fit her surprisingly.
+My face muscles were starting to get sore as all the maids I passed smiled at me. We were guests of honor invited by the Duke himself and they had to act appropriately, but this was too much. Luckily I didn’t need to pull my mouth into a smile in front of the Duchess. She couldn’t see afterall. The maid opened the door for me and announced my presence. A leg behind and grab the sides of your skirt. “Good afternoon, Your Grace.” I gave her a curtsy.
 
-“May I ask you a question, Your Grace.”
+“Your manner of speaking astounds me, Esther. How was her curtsy, Alice?” She asked her personal maid.
 
-“Please call me grandmother, and talk like how you normally do. It’s just us here.”
+“It was very elegant, Your Grace. It looked just like young lady Estelle.”
 
-I glanced at Alice, she nodded.
+The Duchess’ room was twice the size of mine on the third floor. All the small bits and bobs were nowhere to be seen, making it look rather frugal. Light from the windows lit up the room and the tea table my grandmother was sitting at. 
 
-“Okay, can I ask you a question, grandmother?”
+“Alice, why don’t you show our guest to her seat?”
 
-“Of course\! Go ahead.”
+It was my first time being escorted. My lips curled, I felt like an important person. The cookies in front of me looked freshly baked, still giving off wisps of steam as it. But how should I eat this? There was no knife nor fork to use. 
 
-“Were you and mom close? You two act the same.”
+“We typically use our hands when eating these kinds of desserts.” She picked up a cookie.
 
-“Really? We do?”
+I tilted my head. It didn’t feel right to use my fingers, I had gotten used to the feel of utensils. The Duchess was munching on the cookie, not a single crumb fell from her mouth. My right glove laid limply on my lap while my now gloveless hand picked the biggest cookie from the pile. Freshly cooked cookies were now my favorite I decided, after feeling its chewiness between my teeth.
 
-“You have the same smile.”
+“How is it?”
 
-“Your mom must be really happy then.” Her eyes formed into crescent moons.
+“It’s really tasty, Your Grace.”
 
-“I don’t know.”
+“You can call me grandmother when it’s only us talking.” Her eyes smiled.
 
-“Oh? Why is that?”
+Grandmother? That would be difficult. How could I call the woman with that face grandmother? It was fine calling Karrie a friend, because she was. However… I looked to her personal maid for help and she just nodded. 
 
-“My mom has cried a lot lately. She always looked sad before meeting you yesterday.” 
+“Grandmother, may I ask a question?” She wiped her mouth with a napkin. 
 
-“It must have been too early… thank you for telling me, Esther.”
+“What is it, dear?” Her answer made my body shiver.
 
-“Thank you too, grandmother.”
+“When was the last time you saw me?” 
 
-She told me some stories of her youth and how her husband, the Duke, had asked her to marry him. It was one of her happiest days when the moody man proposed to her. 
+“Yes, you may not remember, it was a long time ago.” It was the real Esther, not me. “You became fourteen this year? Then it must have been seven years ago when I first saw you.”
 
-"A lot happened after that but I can still vividly remember when I saw you for the first time. Do you remember dear?”
+My father had brought my mom and I in front of the Duke, it was the first time he had done so. Esther had come down with an illness ordinary priests couldn’t cure. My grandmother said she could still vividly remember how my father had begged the Duke to let the family priest cure me, and it worked. Esther had lived until she was thirteen until I took over. 
 
-“I’m sorry, I still don’t remember anything from the past.”
+“It may be better if you don’t remember that memory”, she said.
 
-“It may be better that way, you shouldn't have needed to experience that.” I simply nodded.
+“Then I will do that”
 
-The tea party ended a short while after that. I had a few more tea parties with my grandmother and the day finally came for when the rest of the Nikodemus family arrived. We stood behind my father who was at the side of the Duke with a professional smile on his face.
+“I didn’t see the resemblance in the chaos of the situation, but you really do look like Victoria. Do you have the same hair colour as your mother too?” It was weird how she kept using phrases involving her eyes. 
+
+“Can you secretly see, grandmother?” She laughed.
+
+“Oh, it’s just a habit of mine, how silly I must seem to be. I lost all vision in my eyes a year ago”, she said. “Now I see nothing even when I open my eyes.” I stared at the golden circle that appeared in front of my face. Wait, she’s not blind? 
+
+Her familiar face had shocked me once already but the appearance of the golden circle really sent me over the edge. Luckily Alice had her face hidden as she served more sweets and tea. I had to close my mouth fast. Wait, didn’t that mean she saw everything? The Duchess was smiling.
+
+My mouth muscles ached as we continued our talk. She told me how my grandfather, the Duke, had always been a stoic man. He had too much responsibility as a subject of the kingdom, but he always meant well, she said. I couldn’t agree. My mom had been constantly spaced off in the air or cried in her sleep. A key lime pie crumbled in my mouth as I watched my grandmother regale her stories. It tasted bittersweet.
+
+The tea party ended and I went to explore more of the estate. The paintings last time were interesting to look at, maybe I should find more of them. I asked a young maid that was busily dusting off the lamps hanging on the walls. 
+
+She poked her cheek with a finger. “Paintings? Maybe the portrait room? Do you want me to show you the way?” 
+
+And so I followed her as she led me to a room full of portraits. Most of them were covered with a cloth but the ones starting from the current Duke could be seen. It immediately stuck out to me how my father’s portrait was nowhere to be seen. 
+
+The portraits showed the current living members of the Nikodemus family. The duke had three children, including my father. They all had black hair. My uncle had two children and my aunt also had two. Again, they all had black hair. 
+
+I had been proud of my golden hair, it was pretty and it looked like mom’s. But at this moment, seeing all of the portraits have jet-black hair, I felt bitter. Was my hair color why father and mother didn’t want to come here? I stared at the empty spot where my father’s portrait once stood. There was a faint outline on the wall.
+
+# Chapter 14.5
+
+The tea party ended a short while after that. I had a few more tea parties with my grandmother and the day finally came for when the rest of the Nikodemus family arrived. 
+
+We stood behind my father who was at the side of the Duke with a professional smile on his face.
 
 “Father\! It is good to be back\!” The oldest was the first to arrive. Giving the Duke a big hug. He had a well-trimmed mustache.
 
@@ -2930,47 +2960,55 @@ The wife stepped up to greet my mother. “Long time no see, Victoria. Ah, I mea
 
 He gave a bow and went with the servants and maids to show them in. I curtsied as they went past us, not turning their head away from the entrance, however I saw the youngest turning backwards right before entering.
 
-The family of four consisted of my mustached uncle Gilbert, his dazzling wife Paulina, and their two sons, Levi and Julian. They both looked older than me. My mother let out a tired sigh, another carriage had arrived. Her hand left a crinkle in her newly ironed dress.
+The family of four consisted of my mustached uncle Gilbert, his dazzling wife Paulina, and their two sons, Levi and Julian. They both looked older than me. 
 
-A woman went up and curtsied. “Good to see you, father.” The best descriptor I found was that she looked sharp.
+My mother let out a tired sigh, another carriage had arrived. Her hand left a crinkle in her newly ironed dress.
+
+The carriage rolled noisily across the 
+
+The carriage bore the Nikodemus family crest, a black rose. Black was a color often seen in the Nikodemus Estate. My grandparents had black hair and so did their children. I had wandered into the portrait room, where I saw paintings of all the direct living members of the Nikodemus family. Father wasn’t included to be found in the room making it easy to see a pattern. All the grandchildren of Duke Nikodemus had black hair. 
+
+The carriage stopped and an elegant woman stepped out. No one escorted her. Everything about her screamed sharp. Her jawline was sharp, her mouth was sharp and her eyes were sharp as a fox. Her black hair hung freely from her head with no embellishments, her only accessories being a pair of red earrings and the ring on her left hand. This had to be my aunt, Lady Grace. Her two daughters cemented that fact as they were escorted by the stationed knights. 
+
+Lady Grace went up the stairs, her shoes rang out each time she took a step, and gave her father a perfect curtsy. 
+
+“Good to see you, father. Have you been well?” 
 
 “Where’s your husband?” he asked.
 
 “He is busy with his business.” 
 
-“Will he be coming soon?” She looked up.
+“Will he be coming soon?” 
 
-“Who knows?”
+She looked up. “Who knows?” Her smile did not reach her eyes.
 
-I saw that the Duke wanted to say something, but two girls went up and gave their greetings before he had the chance.
+Before the Duke could say something, her two daughters had already lined up ready to give their greetings. 
 
 “Greetings, Your Grace”. The older one gave a neat and concise greeting, she looked to be my age.
 
-“Hello grandpa\!” The younger one gave out a lively childlike greeting, befitting her age.
+“Hello grandpa\!” The younger one gave out a lively childlike greeting, befitting her age. The Duke gave a simple nod and told Raviel to show them in.
 
-“Raviel, why don’t you show them in?” To the left of him stood Raviel. She did the same as Alden and began showing them the way.
+My sharp-featured aunt went past my father, not even saying a word to him, and stopped right in front of my mother. She looked down at my moms bowed head.
 
-My sharp-featured aunt went past my father, not even saying a word and stopped right in front of my mother. She looked down at my moms bowed head.
+“I see you have come crawling back.” She spat.
 
-“I see you came crawling back.” She spat.
+“Greetings, Lady Grace.” My mom said, her head still bowed.
 
-“Greetings, Lady Grace.” My mom still had her head bowed.
+“And this must be your daughter.” Her fox-like eyes glared at me. The gaze felt like sharp knives as they pierced into me before looking me up and down. She was most interested in my golden hair. She clicked her tongue and began walking away, the sound of heels followed her as she marched. 
 
-“And this must be your daughter.” Her sharp eyes glared at me, her gaze felt like knives piercing me as she slashed me up and down. Having had her fill, she clicked her tongue and began walking away. Her heels clacked loudly in my ears as she marched with her two daughters in tow, who also looked at me. 
+Following their mother, the youngest looked at me and began walking towards me, leaving her mother’s side. She had the same black hair as her mother and her eyes appeared to be more akin to a cat’s than a fox. Her hair was styled into twintails, a red ribbon adorning each tail.
 
-The youngest came up to me. She had the same black hair and eyes as all the direct descendants of house Nikodemus, the only ones looking different were my other aunt, my mother, and I. Maybe my other uncle also had a different hair color, however, it was still easy to see that black hair symbolized house Nikodemus.
-
-“Who are you?” She asked me with eyes full of curiosity. Probably why a girl with blonde hair and blue eyes was present.
+“Who are you?” She looked at me with eyes full of curiosity. 
 
 “Hello, My name is Eshter. I am fourteen.”
 
-“Wow\! You’re the same age as my big sister, Estelle. Your names sound the same too\!\!” The young girl bounced excitedly up and down. 
+“Wow\! You’re the same age as my big sister, your names sound the same too\! Estelle and Esther." The young girl bounced excitedly up and down, finding that fact funny. 
 
-“Leah, you shouldn’t talk to her like that.” Her sister looked at me with dispassionate eyes. 
+“Leah, you shouldn’t talk to her like that.” Her sister looked at me with uninterested eyes. 
 
-“Why not?” Her little sister asked curiously. 
+“Why not?” Her little sister asked. 
 
-“You don’t need to introduce yourself to the servants.” 
+“That’s because you don’t need to introduce yourself to the servants.” 
 
 She smirked at me. 
 
