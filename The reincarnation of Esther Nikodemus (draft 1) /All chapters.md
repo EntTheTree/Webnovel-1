@@ -2479,7 +2479,7 @@ Galen went into the room and saw his father sitting at the same couch he always 
 
 “You are late.”
 
-“Good to see you too, your grace”. Gale stood in front of the tea table hands behind his back. He looked down at his father, he had gotten older, gray hairs could be seen here and there. 
+“Good to see you too, your grace”. Galen stood in front of the tea table hands behind his back. He looked down at his father, he had gotten older, gray hairs could be seen here and there. 
 
 “Why did you call for me?”
 
@@ -2894,13 +2894,13 @@ Grandmother? That would be difficult. How could I call the woman with that face 
 
 “Yes, you may not remember, it was a long time ago.” It was the real Esther, not me. “You became fourteen this year? Then it must have been seven years ago when I first saw you.”
 
-My father had brought my mom and I in front of the Duke, it was the first time he had done so. Esther had come down with an illness ordinary priests couldn’t cure. My grandmother said she could still vividly remember how my father had begged the Duke to let the family priest cure me, and it worked. Esther had lived until she was thirteen until I took over. 
+My father had appeared in front of the Duke while clutching his ill daughter. It was the first time the Duke saw this unknown granddaughter of his and he went mad. My grandmother said she could still vividly remember how my father begged on his knees while the Duke roared at his son. No other priests could cure Esther, his only hope was the high priest employed for the personal use of house Nikodemus. It worked. Esther had lived until she was thirteen until I took over. 
 
 “It may be better if you don’t remember that memory”, she said.
 
 “Then I will do that”
 
-“I didn’t see the resemblance in the chaos of the situation, but you really do look like Victoria. Do you have the same hair colour as your mother too?” It was weird how she kept using phrases involving her eyes. 
+“I didn’t see the resemblance in the chaos of the situation, but you really do look like Victoria.” It was weird how she kept using phrases involving her eyes. 
 
 “Can you secretly see, grandmother?” She laughed.
 
@@ -2910,109 +2910,122 @@ Her familiar face had shocked me once already but the appearance of the golden c
 
 My mouth muscles ached as we continued our talk. She told me how my grandfather, the Duke, had always been a stoic man. He had too much responsibility as a subject of the kingdom, but he always meant well, she said. I couldn’t agree. My mom had been constantly spaced off in the air or cried in her sleep. A key lime pie crumbled in my mouth as I watched my grandmother regale her stories. It tasted bittersweet.
 
-The tea party ended and I went to explore more of the estate. The paintings last time were interesting to look at, maybe I should find more of them. I asked a young maid that was busily dusting off the lamps hanging on the walls. 
+The tea party ended and I went to explore more of the estate. The paintings last time were interesting to look at, maybe I should find more of them. A young maid roamed the halls, busily dusting the wall mounted lamps. 
 
 She poked her cheek with a finger. “Paintings? Maybe the portrait room? Do you want me to show you the way?” 
 
-And so I followed her as she led me to a room full of portraits. Most of them were covered with a cloth but the ones starting from the current Duke could be seen. It immediately stuck out to me how my father’s portrait was nowhere to be seen. 
+And so I followed her as she led me to a room full of portraits. Most of them were covered with a white cloth but the ones starting from the current Duke could be seen. It immediately stuck out to me how my father’s portrait was nowhere to be seen. 
 
-The portraits showed the current living members of the Nikodemus family. The duke had three children, including my father. They all had black hair. My uncle had two children and my aunt also had two. Again, they all had black hair. 
+The portraits showed the current living members of the Nikodemus family. The duke had three children, including my father. They all had black hair. My uncle had two children and my aunt also had two. They too, had black hair. 
 
-I had been proud of my golden hair, it was pretty and it looked like mom’s. But at this moment, seeing all of the portraits have jet-black hair, I felt bitter. Was my hair color why father and mother didn’t want to come here? I stared at the empty spot where my father’s portrait once stood. There was a faint outline on the wall.
-
-# Chapter 14.5
-
-The tea party ended a short while after that. I had a few more tea parties with my grandmother and the day finally came for when the rest of the Nikodemus family arrived. 
-
-We stood behind my father who was at the side of the Duke with a professional smile on his face.
-
-“Father\! It is good to be back\!” The oldest was the first to arrive. Giving the Duke a big hug. He had a well-trimmed mustache.
-
-“It is good to meet Your Grace again.” His wife gave her greeting. The jewelry she wore sparkled like stars in the night sky, it was hard to count them all.
-
-“Grandpa\! Julian is here.” The youngest shouted excitedly.
-
-“Julian, that’s not how you greet His Grace.” The oldest rebuked his brother.
-
-“Let me go, you rascal. I just met you last week.”
-
-“Haha\! No need to be shy, father.”
-
-“Oh is that really you Galen?” He stood in front of my father.
-
-“I really thought I would never see you again. Give me a hug\!”
-
-He stopped the approaching man. “A handshake is enough.”
-
-The wife stepped up to greet my mother. “Long time no see, Victoria. Ah, I meant sister-in-law.”
-
-“Good to see you too, Lady Paulina.” My mother gave a slight curtsy. “You look dazzling today.” The jewellery glistened as she nodded her head in agreement.
-
-“Brother, who are they?”
-
-“Our uncle and aunt, think.”
-
-“Does that mean that pretty girl is our cousin?” The brothers turned their heads to me. 
-
-“You shouldn’t act friendly with them.” He tried to whisper. They all had black hair and eyes, only my uncle’s wife had a different hue. She had fiery red hair.
-
-“The road must have made you weary. Alden, why don’t you show them to their rooms.”
-
-He gave a bow and went with the servants and maids to show them in. I curtsied as they went past us, not turning their head away from the entrance, however I saw the youngest turning backwards right before entering.
-
-The family of four consisted of my mustached uncle Gilbert, his dazzling wife Paulina, and their two sons, Levi and Julian. They both looked older than me. 
-
-My mother let out a tired sigh, another carriage had arrived. Her hand left a crinkle in her newly ironed dress.
-
-The carriage rolled noisily across the 
-
-The carriage bore the Nikodemus family crest, a black rose. Black was a color often seen in the Nikodemus Estate. My grandparents had black hair and so did their children. I had wandered into the portrait room, where I saw paintings of all the direct living members of the Nikodemus family. Father wasn’t included to be found in the room making it easy to see a pattern. All the grandchildren of Duke Nikodemus had black hair. 
-
-The carriage stopped and an elegant woman stepped out. No one escorted her. Everything about her screamed sharp. Her jawline was sharp, her mouth was sharp and her eyes were sharp as a fox. Her black hair hung freely from her head with no embellishments, her only accessories being a pair of red earrings and the ring on her left hand. This had to be my aunt, Lady Grace. Her two daughters cemented that fact as they were escorted by the stationed knights. 
-
-Lady Grace went up the stairs, her shoes rang out each time she took a step, and gave her father a perfect curtsy. 
-
-“Good to see you, father. Have you been well?” 
-
-“Where’s your husband?” he asked.
-
-“He is busy with his business.” 
-
-“Will he be coming soon?” 
-
-She looked up. “Who knows?” Her smile did not reach her eyes.
-
-Before the Duke could say something, her two daughters had already lined up ready to give their greetings. 
-
-“Greetings, Your Grace”. The older one gave a neat and concise greeting, she looked to be my age.
-
-“Hello grandpa\!” The younger one gave out a lively childlike greeting, befitting her age. The Duke gave a simple nod and told Raviel to show them in.
-
-My sharp-featured aunt went past my father, not even saying a word to him, and stopped right in front of my mother. She looked down at my moms bowed head.
-
-“I see you have come crawling back.” She spat.
-
-“Greetings, Lady Grace.” My mom said, her head still bowed.
-
-“And this must be your daughter.” Her fox-like eyes glared at me. The gaze felt like sharp knives as they pierced into me before looking me up and down. She was most interested in my golden hair. She clicked her tongue and began walking away, the sound of heels followed her as she marched. 
-
-Following their mother, the youngest looked at me and began walking towards me, leaving her mother’s side. She had the same black hair as her mother and her eyes appeared to be more akin to a cat’s than a fox. Her hair was styled into twintails, a red ribbon adorning each tail.
-
-“Who are you?” She looked at me with eyes full of curiosity. 
-
-“Hello, My name is Eshter. I am fourteen.”
-
-“Wow\! You’re the same age as my big sister, your names sound the same too\! Estelle and Esther." The young girl bounced excitedly up and down, finding that fact funny. 
-
-“Leah, you shouldn’t talk to her like that.” Her sister looked at me with uninterested eyes. 
-
-“Why not?” Her little sister asked. 
-
-“That’s because you don’t need to introduce yourself to the servants.” 
-
-She smirked at me. 
+I had been proud of my golden hair, it was pretty and it looked like mom’s. But at this moment, seeing all of the portraits have jet-black hair, I felt bitter. Was my hair color why father and mother didn’t want to come here? There was a faint outline on the wall, it was where my father’s portrait should have been.
 
 # Chapter 15
+
+My uncle and aunt had arrived this morning in their carriages. The Nikodemus crest had a picture of a black rose, a color that was used often in the estate. I liked black, it didn’t hurt my eyes and it felt cozy. A shame that it was a flower being displayed on the crest. The carriages under the window had different crests. My uncle and his family got out of the blue rose carriage and my aunt and her two children got out of the green one. 
+
+“When will your husband arrive?” The duke asked. 
+
+My aunt dabbed her mouth with a napkin. “Who knows?”
+
+We were currently having dinner together. My grandfather sat at the end like always, the firstborn and his wife occupied the seats to his right, while the secondborn took the seat to the left. My father sat beside my aunt and my mother sat opposite of him. Us children had been seated on the rest of the seats accordingly. The first time I saw this table, I thought it to be unnecessarily long. Yet seeing all the seats being used made it look rather small today. My grandmother didn’t attend today’s dinner.
+
+“My dear sister, you shouldn’t answer our father like that”, my uncle said. “He must be running late with his business again, father.”
+
+“What would you know about my husband, Gilbert?”
+
+My uncle, Gilbert Nikodemus had a pleasant appearance. His eyes were a bit rounder than my father’s and the way they tilted downward to the sides, made him appear to constantly have a smiling expression. He looked friendly enough. 
+
+“Many would know about your husband, Grace.” My aunt clicked her tongue. 
+
+The first impression I got from my aunt was that she looked like a fox. She stood half a head taller than my mother, making her fox-like eyes stare downwards when we went to greet her. I noticed that she was frowning.
+
+“That’s enough.” My grandfather let out a sigh.
+
+“Your Grace, you shouldn’t sigh that much, it will dry out your happiness.” Uncle’s wife mirrored his expression. My grandfather let out another sigh.
+
+“Where is mother? I haven’t seen her in a while.”
+
+“We will talk about that after dinner.”
+
+“Is that why you had us all called here?” My aunt asked. “You even managed to find Galen.“ Everyone at the table turned their head to my father. His hands continued to cut the slab of meat on his plate.
+
+“I said we will talk about it after dinner.”
+
+“Fine, do as you wish.” My aunt stood up. “You finish your meal, children. Your mother is tired.” Her two daughters gave an affirmative nod.
+
+Dessert wasn’t served today, a fact that would normally leave me disappointed. The adults had gone into the Duke’s office to speak about some important matter. 
+
+The maids and servants began to clean our plates 
+
+Her two daughters in front of me gave an affirmative nod. One looked to be my age and the other far younger. They were whispering to each other.   
+“Estelle, mom got tired really fast today.” 
+
+“It must be because of them.”
+
+“You mean her? She’s pretty\!” 
+
+She turned her head. “Hey, what's your name, I’m Leah\!” The girl with twintails had a big smile on her face. 
+
+“My name is Esther, I’m fourteen.” 
+
+“Wow\! You’re the same age as my big sister, your names sound the same too\! Estelle and Esther." She bounced excitedly up and down, making her hair fly around. 
+
+“Don’t get too close to her.”
+
+“Why not?”
+
+Estelle smirked. “Because her mother is a witch” 
+
+My hands twitched. What did she mean by that? Lifting my head I saw four pairs of eyes looking at me. 
+
+I felt my body begin to heat up and a prickling sensation grazed my back. 
+
+“A witch? What did she do?” I heard a boyish voice ask.
+
+“Brother, don’t join them.”
+
+“Tsk, you’re so boring.” 
+
+My body felt like it was burning. The prickling sensation had multiplied, it felt like needles were digging into my skin. Why did they call my mother a witch? I had to avert my gaze from their accusationary glares. 
+
+“Hey”, I saw her twintails move. “Are you a witch too?”
+
+Stars were beginning to pop up as my peripheral vision darkened. 
+
+I forced my hands to stay still and it made them tremble.   
+My hands wanted to move, but I forced them to stay still. They wanted to scratch the itchiness. I hid my 
+
+I had to get out of here. The Duke’s plate still had pieces of food on it, but I had to get out now. I wanted to rip my back off, I wanted to freeze myself in icy water. My aunt left the table, I could also leave right?  
+
+“Your Grace, it seems Esther is unwell, could she be excused?” My mom spoke. 
+
+“Of course.”
+
+I stood up, someone was saying something as my legs walked out the door. I ran across the carpet. I entered my room. I opened the window. I took off my gloves.
+
+“Miss, are you all right?” 
+
+What? What was she doing in here? Did she see my hand? The rough wall behind me stopped me when I staggered backwards. The maid from yesterday stood in front of my door. She looked concerned.
+
+“Get out.”
+
+“You don’t look well…”
+
+“I said get out\!” She turned around and went to the door. Then she closed it.
+
+“What are you doing?”
+
+“Just pretend I’m not here.” She was facing the closed door.
+
+“I am a guest of the Duke, get out of my room\!”
+
+“...”
+
+My back itched, my chest itched, my face itched. Fine, just stand there all you want.   
+I began digging into my neck, scratching where it itched. The cool wind gave me relief as it grazed where the skin was exposed. I trembled, it looked disgusting in the mirror. The reflection stood hunched over. My hair was undone, it was messy. Mom had braided it for me that morning.
+
+# Chapter 16
 
 TK drama stuff, victoria is welcomed on the surface but the past rears its head
 
