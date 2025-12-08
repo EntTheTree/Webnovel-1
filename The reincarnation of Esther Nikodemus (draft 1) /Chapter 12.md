@@ -65,7 +65,7 @@ Galen went into the room and saw his father sitting at the same couch he always 
 
 “You are late.”
 
-“Good to see you too, your grace”. Gale stood in front of the tea table hands behind his back. He looked down at his father, he had gotten older, gray hairs could be seen here and there. 
+“Good to see you too, your grace”. Galen stood in front of the tea table hands behind his back. He looked down at his father, he had gotten older, gray hairs could be seen here and there. 
 
 “Why did you call for me?”
 
