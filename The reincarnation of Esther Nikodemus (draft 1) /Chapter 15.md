@@ -121,6 +121,6 @@ I found myself back in my room when I came back to. My gloves sat on the table i
 
 I still remember the first time I did it. It was some old woman sleeping on the ground. Everyday on the same spot, at the same time and every time I walked from the house, she slept there. On that piece of tattered cardboard. There was one day when she didn’t sleep there. A miracle I thought. No more would I have to see her dirty clothes and that dirty paper cup staining my view. Alas, the very next day she was back again. Still sleeping and still dirty. That was when I couldn’t take it any longer. I wanted her gone.
 
-My trip from the house got remarkably better after that day. Sure, her shocked expression as I jammed a knife in her throat still surfaced whenever I slept or ate or studied or went to the toilet, but that was for better than seeing her sorry state at the corner of the street. 
+My trip from the house got remarkably better after that day. Sure, her shocked expression as I jammed a knife in her throat still surfaced whenever I slept or ate or studied or went to the toilet, but that was far better than seeing her sorry state at the corner of the street. 
 
-A week after my first murder, Ann suddenly pulled me to the side. To ask me something.
+A week after my first murder, Ann pulled me to the side to ask me something.
