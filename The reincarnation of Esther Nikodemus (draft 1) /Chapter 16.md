@@ -1,5 +1,7 @@
 # Chapter 16
 
+TK tea with grandma
+
 TK drama stuff, victoria is welcomed on the surface but the past rears its head
 
 TK frustration build up for esther

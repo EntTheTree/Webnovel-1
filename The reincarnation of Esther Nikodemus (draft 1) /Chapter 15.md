@@ -26,65 +26,85 @@ The first impression I got from my aunt was that she looked like a fox. She stoo
 
 “We will talk about that after dinner.”
 
-“Is that why you had us all called here?” My aunt asked. “You even managed to find Galen.“ Everyone at the table turned their head to my father. His hands continued to cut the slab of meat on his plate.
+“Is that why you had us all called here?” My aunt asked. “You even managed to find Galen.“ All the heads at the table turned to my father. 
 
-“I said we will talk about it after dinner.”
+“Speaking of which, why are they sitting at our table?” My father stopped cutting the piece of meat on his plate
 
-“Fine, do as you wish.” My aunt stood up. “You finish your meal, children. Your mother is tired.” Her two daughters gave an affirmative nod.
+“The Duke has so graciously invited me into his home, which makes me an honorable guest.”
 
-Dessert wasn’t served today, a fact that would normally leave me disappointed. The adults had gone into the Duke’s office to speak about some important matter. 
+“Is she also an honorable guest?” My aunt pointed at my mother with her knife. “I can’t believe you have the nerve to show your face back here.” The droplets on the knife dripped as she bounced it up and down. 
 
-The maids and servants began to clean our plates 
+“Grace”, the Duke said.
 
-Her two daughters in front of me gave an affirmative nod. One looked to be my age and the other far younger. They were whispering to each other.   
-“Estelle, mom got tired really fast today.” 
+“I can’t believe it.” She stood up. “I’ve lost my appetite, please excuse me.” Her sharp heels clacked as she left the room. I wanted to see how my mom was doing, but it was too far to get a look, we sat on the same side at the table. I only saw how the expressions of the other side looked. I felt a silent need to wipe their faces.
 
-“It must be because of them.”
+“She comes and goes as she pleases like always”, my other aunt said. “I pity her husband for having to control such a woman.”
 
-“You mean her? She’s pretty\!” 
+“Don’t say that, dear. It’s an honor to be able to wed into our family. My sister is just tired from the long journey is all. Isn’t that right, father?”
 
-She turned her head. “Hey, what's your name, I’m Leah\!” The girl with twintails had a big smile on her face. 
+My own father put down his knife and fork. “If it is such an honor, then why is he not here with us then? What you are saying is not making sense, Lord Gilbert.”
 
-“My name is Esther, I’m fourteen.” 
+“I was not asking for your opinion on this matter, Galen.” 
 
-“Wow\! You’re the same age as my big sister, your names sound the same too\! Estelle and Esther." She bounced excitedly up and down, making her hair fly around. 
+“Stop the squabbling, I’m getting a headache just hearing you all speak.”
 
-“Don’t get too close to her.”
+“Alden, take the children out of here and serve them dessert or whatever children like.”
 
-“Why not?”
+The servants began taking our plates and ushered us out. Luckily I had gotten to eat something before I lost my appetite. It didn’t taste that good today. 
 
-Estelle smirked. “Because her mother is a witch” 
+I followed my cousins as we were led to another room. The pair of brothers took a seat at the couch as if it was natural. 
 
-My hands twitched. What did she mean by that? Lifting my head I saw four pairs of eyes looking at me. 
+I followed my cousins as we were led to another room. I didn’t know exactly what had happened but watching the older ones calmly take a seat on the couch I thought no more of it.
 
-I felt my body begin to heat up and a prickling sensation grazed my back. 
+“Hah… This always happens when we all get together.” One of the brothers slumped on the couch. 
 
-“A witch? What did she do?” I heard a boyish voice ask.
+“At least the food always tastes good”, said the older one.
 
-“Brother, don’t join them.”
+My youngest cousin hadn’t taken a seat yet. She stood staring at me with her big round eyes. Her hair was styled into twintails which were adorned by green ribbons. 
 
-“Tsk, you’re so boring.” 
+“Hello\! I’m Leah. Who are you?”, she asked with a bounce.
 
-My body felt like it was burning. The prickling sensation had multiplied, it felt like needles were digging into my skin. Why did they call my mother a witch? I had to avert my gaze from their accusationary glares. 
+“My name is Esther. I’m fourteen.” I didn’t know whether I had to or not but I gave her a curtsy anyway.”
 
-“Hey”, I saw her twintails move. “Are you a witch too?”
+“Wow\! You’re the same age as my big sister, your names sound the same too\! Estelle and Esther\!” She bounced up and down excitedly.
 
-Stars were beginning to pop up as my peripheral vision darkened. 
+“Leah, you shouldn’t talk to her.”
 
-I forced my hands to stay still and it made them tremble.   
-My hands wanted to move, but I forced them to stay still. They wanted to scratch the itchiness. I hid my 
+“Why not?” she asked her sister.
 
-I had to get out of here. The Duke’s plate still had pieces of food on it, but I had to get out now. I wanted to rip my back off, I wanted to freeze myself in icy water. My aunt left the table, I could also leave right?  
+“You see that yellow hair? That’s because she’s a witch”. She smirked at me.
 
-“Your Grace, it seems Esther is unwell, could she be excused?” My mom spoke. 
+My hands twitched. What did she mean by that?  “I’m not a witch.” 
 
-“Of course.”
+“Your mother is a witch, which makes you a witch too.” I felt my blood turn. I get that she could not like me, but calling my mom a witch was unacceptable. 
 
-I stood up, someone was saying something as my legs walked out the door. I ran across the carpet. I entered my room. I opened the window. I took off my gloves.
+“My mother is not a witch, please take that back.”
+
+“Why should I? It’s the truth isn't it?” She turned to the brothers. I felt my body begin to heat up and a prickling sensation grazed my back. 
+
+“You two figure it out yourself, don’t drag me into your childish arguments.”
+
+“A witch? What did she do?” I heard the other one say.
+
+“I don’t know, why don't we go ask her mother?”
+
+My body felt like it was burning. The prickling sensation had multiplied, it felt like needles were digging into my skin. Who were they to disrespect my mother like this? I forced my hands to stay still. 
+
+“Why are you saying this? My mother is a good person.” Why did I always have to defend my mother from strangers? 
+
+“A good person? As if\!” She laughed. I could tell she hated me by the way her eyes glared at me. I had seen it all too often. 
+
+“It’s your mother’s fault that my mother is always sad\!” 
+
+I had to get out of here. A second more and I would not be able to stop myself. I ran away. 
+
+“I’m not finished talking to you\!”
+
+Someone was saying something but I ignored them. I ran across the carpet. I entered my room. I opened the window. I took off my gloves. My body was getting unbearably hot. I wanted to rip my skin off.
 
 “Miss, are you all right?” 
 
-What? What was she doing in here? Did she see my hand? The rough wall behind me stopped me when I staggered backwards. The maid from yesterday stood in front of my door. She looked concerned.
+What? What was she doing in here? Did she see my hand? The rough wall behind me stopped me when I staggered backwards. I saw her feet standing in front of the door frame in my room. She stood in front of my door. 
 
 “Get out.”
 
@@ -102,3 +122,31 @@ What? What was she doing in here? Did she see my hand? The rough wall behind me 
 
 My back itched, my chest itched, my face itched. Fine, just stand there all you want.   
 I began digging into my neck, scratching where it itched. The cool wind gave me relief as it grazed where the skin was exposed. I trembled, it looked disgusting in the mirror. The reflection stood hunched over. My hair was undone, it was messy. Mom had braided it for me that morning.
+
+The maid was quiet as a mouse standing there while I felt my body cool down. Her back was turned to me making it impossible to see her face. She had light blue hair which was braided to the left.
+
+“You can turn around now…” 
+
+She did as I told her and I finally saw her face, it was the maid from yesterday. She looked concerned. 
+
+“Why did you enter my room without permission”
+
+“I saw you run away with a terrible expression on your face.”
+
+“What does that matter to you?”
+
+“It matters a great deal miss”
+
+What was this maid saying? 
+
+“It may not be my place but let me say this: your mother is not a witch.”
+
+“I know that already, there is no way she is a witch. They don’t even exist anyway.”
+
+The maid walked closer to me. “Here are your gloves”
+
+“You’re not disgusted by them?”
+
+“It’s not my place to judge our guests.”
+
+“You do a lot of things for acting so servile.”
