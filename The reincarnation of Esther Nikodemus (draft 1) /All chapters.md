@@ -2922,170 +2922,132 @@ I had been proud of my golden hair, it was pretty and it looked like mom’s. Bu
 
 # Chapter 15
 
-My uncle and aunt had arrived this morning in their carriages. The Nikodemus crest had a picture of a black rose, a color that was used often in the estate. I liked black, it didn’t hurt my eyes and it felt cozy. A shame that it was a flower being displayed on the crest. The carriages under the window had different crests. My uncle and his family got out of the blue rose carriage and my aunt and her two children got out of the green one. 
+This morning, the servants were busy with preparing for the arrival of the Duke’s children. I was learning some more noble etiquette from my mom when I asked her how to act and behave in front of them. She told me to not worry. They won’t even look or talk to us. Mom’s comment didn’t exactly make me understand but seeing them walk with a noble air around, I understood. These were real, proud and confident nobles.  
+   
+Although I had learnt how to act like a noble by observing my parents and my grandparents, there was something different about them. They marched in the entrance with a confident gait while the servants took care of their luggage. The first first family to arrive was my uncle. A carriage bearing the family crest, a rose, was stationed out in the driveway. Different from the Nikodemus crest was the color. Instead of the usual black, it was blue instead. There was a blue rose painted on the carriage.  
+   
+My uncle had a friendly appearance. The end of his eyes drooped downwards to the sides, making him appear to always be smiling about something. His wife looked dazzling, literally. A necklace with countless gems fitted into it, earrings that seemed far too big and I could swear I saw diamonds sewed onto her dress. It was sparkling whenever she took a step. Imagine how many silvers her outfit would cost. 
 
-“When will your husband arrive?” The duke asked. 
+The next to arrive was my aunt. Her carriage sported a green rose this time. Why was the family crest a rose of all things, couldn’t there be an animal or a sword at least? I could already feel my irritation brew as a striking woman entered through the door. She was a fox. At the temple there were some foxes living in the surrounding forest. They had an air of mystique about them, pretty too. One of these had once wandered up to me, staring me in the eyes. It looked angry. 
 
-My aunt dabbed her mouth with a napkin. “Who knows?”
+Her clacking high heels went silent when she stopped in front of my mom giving a curtsy. Even if we were the guests of the Duke himself, proper etiquette had to be observed. We couldn’t lift our heads until told by a higher ranking person. This was one of the things that I didn’t like about noble etiquette. My grandmother didn’t care much about it, but there were so many rules and proper ways to do things. Dinner etiquette had been easy because it was logical, but the things I learnt were more akin to nonsense. My aunt stood there for a while before clicking her tongue and strutting away, her two daughters in tow. My mom looked exhausted already. 
 
-We were currently having dinner together. My grandfather sat at the end like always, the firstborn and his wife occupied the seats to his right, while the secondborn took the seat to the left. My father sat beside my aunt and my mother sat opposite of him. Us children had been seated on the rest of the seats accordingly. The first time I saw this table, I thought it to be unnecessarily long. Yet seeing all the seats being used made it look rather small today. My grandmother didn’t attend today’s dinner.
+“When will your husband arrive?” The Duke cut into his steak.
+
+My fox-like aunt dabbed her mouth with a napkin before answering. “Who knows?”
+
+My grandfather sat at the end like always with his firstborn son to his right and his daughter to the left. Their family trickled downwards before ending up at the end where my parents and I sat. The first time I saw this table, I thought it to be unnecessarily long. Yet seeing all the seats filled it looked rather small today. My grandmother didn’t attend today’s dinner.
 
 “My dear sister, you shouldn’t answer our father like that”, my uncle said. “He must be running late with his business again, father.”
 
 “What would you know about my husband, Gilbert?”
 
-My uncle, Gilbert Nikodemus had a pleasant appearance. His eyes were a bit rounder than my father’s and the way they tilted downward to the sides, made him appear to constantly have a smiling expression. He looked friendly enough. 
+“Many would know about your husband, Grace.” It was too far to discern the look on my aunt’s face, but the big gulp of wine she drank gave me a rough idea.
 
-“Many would know about your husband, Grace.” My aunt clicked her tongue. 
+“That’s enough”. The Duke let out a sigh.
 
-The first impression I got from my aunt was that she looked like a fox. She stood half a head taller than my mother, making her fox-like eyes stare downwards when we went to greet her. I noticed that she was frowning.
+“Your Grace, you shouldn’t sigh that much. I heard a little happiness disappears each time\!” My uncle’s wife chirped. I heard another sigh leak out.
 
-“That’s enough.” My grandfather let out a sigh.
+“Where is mother? Is she not well today too?” Uncle Gilbert asked. 
 
-“Your Grace, you shouldn’t sigh that much, it will dry out your happiness.” Uncle’s wife mirrored his expression. My grandfather let out another sigh.
+“We will talk about that matter after dinner.”
 
-“Where is mother? I haven’t seen her in a while.”
+Aunt Grace took another swig of wine. “Is that why you had us all called here? You even managed to find Galen.” It was audible when they all turned their heads towards my father.
 
-“We will talk about that after dinner.”
+“And why is it that they are sitting at our table?” 
 
-“Is that why you had us all called here?” My aunt asked. “You even managed to find Galen.“ All the heads at the table turned to my father. 
+“The Duke had graciously extended an invitation to us, which makes us honorable guests deserving to sit here.”
 
-“Speaking of which, why are they sitting at our table?” My father stopped cutting the piece of meat on his plate
+“Hah, does that mean she is also an honorable guest?” She pointed her knife at my mom. “I can’t believe you have the nerve to show your face back here and even to deign to sit with us.” The bloody droplets dripped as she bounced it up and down. What did my mom do to experience such animosity?
 
-“The Duke has so graciously invited me into his home, which makes me an honorable guest.”
+“Grace”, the Duke called her name.
 
-“Is she also an honorable guest?” My aunt pointed at my mother with her knife. “I can’t believe you have the nerve to show your face back here.” The droplets on the knife dripped as she bounced it up and down. 
+“I can’t believe it.” She stood up. “I’ve lost my appetite, please excuse me.” Her sharp heels clacked as she left. Her children didn’t even react to this breach of conduct, as if it was a common occurrence. I looked at my mom’s face but she still had that smile she taught me. That smile didn’t fit her.
 
-“Grace”, the Duke said.
+“She comes and goes like the storm that one”, my other aunt said. “I can’t imagine how her husband must feel.”
 
-“I can’t believe it.” She stood up. “I’ve lost my appetite, please excuse me.” Her sharp heels clacked as she left the room. I wanted to see how my mom was doing, but it was too far to get a look, we sat on the same side at the table. I only saw how the expressions of the other side looked. I felt a silent need to wipe their faces.
+“Don’t say that, dear. It’s an honor to be able to wed into our family. My sister must just be tired from the long journey is all. Isn’t that right, father?”
 
-“She comes and goes as she pleases like always”, my other aunt said. “I pity her husband for having to control such a woman.”
+My father put down his fork. “If it is such an honor, then why is he not here with us then? The duke personally invited him after all. What you are saying is not making sense, Lord Gilbert.”
 
-“Don’t say that, dear. It’s an honor to be able to wed into our family. My sister is just tired from the long journey is all. Isn’t that right, father?”
+“Oh, did I ask for your opinion by mistake? Galen.”
 
-My own father put down his knife and fork. “If it is such an honor, then why is he not here with us then? What you are saying is not making sense, Lord Gilbert.”
+“Stop it, I’m getting a headache just hearing you all speak.”
 
-“I was not asking for your opinion on this matter, Galen.” 
+The rest of the dinner was as silent as the grave. Only the occasional clatter of silver hitting porcelain could be heard. The adults had gone off to meet my grandmother making us children the only ones left sitting in the adjoining tea room. 
 
-“Stop the squabbling, I’m getting a headache just hearing you all speak.”
+This was my first time seeing noble children and my imagination had been too much. They looked just like normal children. The brothers were busy playing cards and calling each other things like: you suck, you’re bad, and I will win next time. The older sister was reading a book while sitting with a straight back and in front of me stood the younger one. Her hair was styled into twintails, a green ribbon adorning each of the tails. Her round eyes were staring at me.
 
-“Alden, take the children out of here and serve them dessert or whatever children like.”
+“Hello\! I’m Leah. Who are you?”
 
-The servants began taking our plates and ushered us out. Luckily I had gotten to eat something before I lost my appetite. It didn’t taste that good today. 
+“Hello, my name is Esther.” 
 
-I followed my cousins as we were led to another room. The pair of brothers took a seat at the couch as if it was natural. 
+“You’re really pretty\! How old are you?”
 
-I followed my cousins as we were led to another room. I didn’t know exactly what had happened but watching the older ones calmly take a seat on the couch I thought no more of it.
+“I’m fourteen this year.”
 
-“Hah… This always happens when we all get together.” One of the brothers slumped on the couch. 
+“Wow\! You’re the same as my big sister, your names sound the same too\! Estelle and Esther\!” She bounced up and down excitedly.
 
-“At least the food always tastes good”, said the older one.
+“Do you want to play with me? My sister is always reading or doing boring stuff…”
 
-My youngest cousin hadn’t taken a seat yet. She stood staring at me with her big round eyes. Her hair was styled into twintails which were adorned by green ribbons. 
+“If you will allow me”
 
-“Hello\! I’m Leah. Who are you?”, she asked with a bounce.
+She giggled. “You talk just like an old lady\!” 
 
-“My name is Esther. I’m fourteen.” I didn’t know whether I had to or not but I gave her a curtsy anyway.”
+We were playing with a piece of string. It was surprisingly fun. Making new shapes as it wrapped around my fingers as I tried to copy what she did. I couldn’t do the more complex shapes because of my stiff left hand. 
 
-“Wow\! You’re the same age as my big sister, your names sound the same too\! Estelle and Esther\!” She bounced up and down excitedly.
+“You.” Estelle was standing in front of us. 
 
-“Leah, you shouldn’t talk to her.”
+“What month is your birthday?” Is this how noble children greeted each other? I didn’t have enough reference to know.
 
-“Why not?” she asked her sister.
+“It was in February.” 
 
-“You see that yellow hair? That’s because she’s a witch”. She smirked at me.
+She smirked. “Mine’s in January”.
 
-My hands twitched. What did she mean by that?  “I’m not a witch.” 
+A monk once said that children have a tendency to follow in their parent’s footsteps, good or bad. I had vehemently denied that theory, but as to mock me. Cases where it supported his theory kept popping up. If her mother was a fox, then she would be a cat. She had long straight hair with a green accessory in her hair. Her eyes looked at me like that of a predator looking at prey. The way she crossed her arms and tilted her hip made me unreasonably irritated. I could tell she was looking down on me. 
 
-“Your mother is a witch, which makes you a witch too.” I felt my blood turn. I get that she could not like me, but calling my mom a witch was unacceptable. 
+“What did you think about Alcove’s Exhaltations?”
 
-“My mother is not a witch, please take that back.”
+“I have not read that.” The library only permitted family members to enter, making me only stand outside the door and glare at the bookkeeper who always sat in his seat. Nonetheless, even if I had gotten access, a book titled Exaltations sounded nonsensical. Who could be so happy as to write a book about it? 
 
-“Why should I? It’s the truth isn't it?” She turned to the brothers. I felt my body begin to heat up and a prickling sensation grazed my back. 
+“So you haven’t come that far yet, what about The journey of Deborah?” Why was she looking so proud?
 
-“You two figure it out yourself, don’t drag me into your childish arguments.”
+“Oh, I liked that one\!” Leah nodded. I could only shake my head.
 
-“A witch? What did she do?” I heard the other one say.
+“What? Not even that one?” 
 
-“I don’t know, why don't we go ask her mother?”
+She continued to mention book titles, almost like expecting me to at least have read at least one of them.
 
-My body felt like it was burning. The prickling sensation had multiplied, it felt like needles were digging into my skin. Who were they to disrespect my mother like this? I forced my hands to stay still. 
+“The monster encyclopedia?”
 
-“Why are you saying this? My mother is a good person.” Why did I always have to defend my mother from strangers? 
+“Oh, that I’ve read.”
 
-“A good person? As if\!” She laughed. I could tell she hated me by the way her eyes glared at me. I had seen it all too often. 
+“Hey“, she called out. “Who’s your tutor? Yours doesn't sound good. Mine was countess Belford.” My finger twitched.
 
-“It’s your mother’s fault that my mother is always sad\!” 
+“I don’t have a tutor.”
 
-I had to get out of here. A second more and I would not be able to stop myself. I ran away. 
+“You don’t have a tutor? Everyone has a tutor. Where did you learn etiquette then?” What was with all these questions? It was like how that detective had questioned me. “You are better than those dull boys over there.”
 
-“I’m not finished talking to you\!”
+“I learnt from my mother”
 
-Someone was saying something but I ignored them. I ran across the carpet. I entered my room. I opened the window. I took off my gloves. My body was getting unbearably hot. I wanted to rip my skin off.
+Her eyes went wide. “That woman? You’re lying.” Why was she calling my mother ‘that woman’? 
 
-“Miss, are you all right?” 
+“I’m not lying and her name is Victoria.” I couldn’t even lie if my life depended on it. 
 
-What? What was she doing in here? Did she see my hand? The rough wall behind me stopped me when I staggered backwards. I saw her feet standing in front of the door frame in my room. She stood in front of my door. 
+“Why should I know her name? She’s not even a noble.” She poked my forehead. “I heard that woman is just a commoner.” Poke, poke. “A lowly orphan servant commoner.” 
 
-“Get out.”
+I wanted to kill her right there and then.
 
-“You don’t look well…”
+\*\*\*  
+I found myself back in my room when I came back to. My gloves sat on the table in front of me letting the sun warm up my hands. The light rippled as it hit my left hand casting waves of shadows across the skin. I tried to forget the incident where I got caught, but just like the morning sun. The icing pain reminded me every single day that I had failed that day. Killing wasn’t something I particularly enjoyed, I did it out of necessity. 
 
-“I said get out\!” She turned around and went to the door. Then she closed it.
+I still remember the first time I did it. It was some old woman sleeping on the ground. Everyday on the same spot, at the same time and every time I walked from the house, she slept there. On that piece of tattered cardboard. There was one day when she didn’t sleep there. A miracle I thought. No more would I have to see her dirty clothes and that dirty paper cup staining my view. Alas, the very next day she was back again. Still sleeping and still dirty. That was when I couldn’t take it any longer. I wanted her gone.
 
-“What are you doing?”
+My trip from the house got remarkably better after that day. Sure, her shocked expression as I jammed a knife in her throat still surfaced whenever I slept or ate or studied or went to the toilet, but that was for better than seeing her sorry state at the corner of the street. 
 
-“Just pretend I’m not here.” She was facing the closed door.
-
-“I am a guest of the Duke, get out of my room\!”
-
-“...”
-
-My back itched, my chest itched, my face itched. Fine, just stand there all you want.   
-I began digging into my neck, scratching where it itched. The cool wind gave me relief as it grazed where the skin was exposed. I trembled, it looked disgusting in the mirror. The reflection stood hunched over. My hair was undone, it was messy. Mom had braided it for me that morning.
-
-The maid was quiet as a mouse standing there while I felt my body cool down. Her back was turned to me making it impossible to see her face. She had light blue hair which was braided to the left.
-
-“You can turn around now…” 
-
-She did as I told her and I finally saw her face, it was the maid from yesterday. She looked concerned. 
-
-“Why did you enter my room without permission”
-
-“I saw you run away with a terrible expression on your face.”
-
-“What does that matter to you?”
-
-“It matters a great deal miss”
-
-What was this maid saying? 
-
-“It may not be my place but let me say this: your mother is not a witch.”
-
-“I know that already, there is no way she is a witch. They don’t even exist anyway.”
-
-The maid walked closer to me. “Here are your gloves”
-
-“You’re not disgusted by them?”
-
-“It’s not my place to judge our guests.”
-
-“You do a lot of things for acting so servile.”
+A week after my first murder, Ann suddenly pulled me to the side. To ask me something.
 
 # Chapter 16
-
-TK tea with grandma
-
-TK drama stuff, victoria is welcomed on the surface but the past rears its head
-
-TK frustration build up for esther
-
-TK Victoria decides to stop moping when her daughter becomes ostracised or smt
-
-TK have a scene where esther tells one of the dharams/kuans/fables to Rosalyn.
-
-TK arc ends with the grandmothers death and the aftermath \- they remain permanently in capital cuz gale gets his title reinstated.
 
 # Notes
 
