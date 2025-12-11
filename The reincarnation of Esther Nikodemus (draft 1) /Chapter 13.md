@@ -28,26 +28,25 @@ Sunlight tried to pry itself through the windows. Drawing all the curtains made 
 
 Spread in front of me were several knives, forks and spoons. They glistened as the embroidery caught the light from the chandelier. The maids and servants began laying out the food. At the head of the table sat my grandfather, Duke Nikodemus. To his right sat my dad and mom, with the former sitting closer. I sat opposite of mom, making the seat between His Grace and I empty.
 
-Noble etiquette for dining was surprisingly simple. You start with the utensils on the outside and work yourself in, make sure to not make too much noise. I picked up the next pair of utensils and began cutting the venison steak. The food was unfortunately really delicious.  
+I copied what my mom was doing, start on the outside then work yourself inward. Holding the fork on my left and knife on my right, I cut into the thick piece of meat on my plate. It was tough. There was no problem with the cutting, but my left hand couldn’t anchor the steak properly, letting it slide with the motion of my knife. Feeling frustrated, I was about to give up when my plate disappeared and a new one replaced it. My father had given me his already cut plate of steak. 
 
-“She eats like she has never eaten before. Are you even feeding her?”
+“Tsk, she doesn’t even know how to use a fork and knife. What have you been teaching her?”
 
-“She eats plenty, we’re just tired from the trip.”
+“We have been teaching her the important things in life.”
 
-His Grace gave out a “hmph” and called for a servant standing at attention. 
+“And knowing how to eat like a civilized person is not important?”
 
-“Give this to her.” It was another plate of venison. 
+My father put down the utensils. “That’s enough.”
 
-“You don’t have to eat it, Esther.” Dad said.
+“Hah\! Keep spoiling her like that and regret is all you will get.”
 
-“Thank you, Your Grace.” I bowed my head. 
+“And what’s up with that glove of hers.” Mom looked at me with a sad expression.
 
-“I wonder who she takes after.” A shrilling sound could be heard coming from my father's plate. 
+Dessert was served after we finished the main dish. I’ve never seen so many different types of sweets before. There were cakes, cookies and even some wobbling thing. It tasted sweet and cold. I ate another one. 
 
-“And what’s up with that glove of hers.” My father put down his knife and fork. Mom just looked at me with a sad expression.
+“Look at her stuffing her face, I ought to give her a tutor.”
 
-\*\*\*  
-My first impression of my grandfather left me a little conflicted. I wanted to explore the estate after waking up from my nap. Strolling around and looking at the paintings was pretty fun. There was a particular painting that caught my attention. It depicted a grotesque figure lifting a person and eating them. Instead of a face of pleasure being painted on the figure, a look of horror and disgust stared back at me instead. 
+After dinner, I went around to explore the estate. It almost seemed like a museum with all the paintings hanging on the walls. There was a particular one that rooted me on the spot. It depicted a grotesque figure taking a bite out of a person. Instead of looking satisfied, the face painted on the figure was a look of horror and disgust. Its eyes were staring at me.
 
 “An interesting painting isn’t it?” The sudden question made my shoulders give a quick jump. It was the Duke speaking beside me.
 
@@ -57,33 +56,25 @@ My first impression of my grandfather left me a little conflicted. I wanted to e
 
 “No, this is the only one he left with me.”
 
-I looked at him. He was neatly dressed in a suit standing with a straight posture. It was hard to read his face as he stared at the painting, neither smiling nor frowning. His TKsamecolorasgales eyes were calm like the mountains I saw on the way here. The combined features really made one feel intimidated in his presence.
+I looked at him. He was neatly dressed in a suit standing with a straight posture. It was hard to read his face as he stared at the painting, neither smiling nor frowning. His dark eyes were calm like the mountains I saw on the way here. The combined features really made one feel intimidated in his presence.
 
-The timing to give my introduction or greet him had already passed. A peculiar atmosphere surrounded us as I held my silence, he must already know who I am.   
-I thought no more of it and continued admiring the painting. The way the figure looked evoked an emotion from me. I finally figured out why the temple had the paintings of the demons hung up. It was a painting of yourself.
+I looked at him. He was neatly dressed in a suit standing with a straight posture. It was hard to read his face as he stared at the painting, neither smiling nor frowning. His eyes were a little sunken, making him look a bit tired. Oh, I forgot to greet him. The peculiar atmosphere surrounding us made me hold my silence, the timing was long gone. Well, no matter. He can’t expect me to know perfect etiquette. 
+
+The painting looked similar to something that was at the back of my mind. It’s raw face, I had seen it somewhere. 
+
+The painting looked similar to the paintings the temple liked to hang up. I had always wondered why they did that, hanging up paintings of demons. An answer had reared itself in my mind. It was a mirror, a painting of yourself.
 
 “Why do you think I had this painting hung up in the main hallway?”
 
-“As a reminder, Your Grace”. He paused.
+“As a reminder, Your Grace” 
 
-“I haven’t heard that answer before.”
+He paused. “Interesting. I haven’t heard that answer before.”
 
-He pulled something out of his pocket and gave it to me. It was my reward for entertaining him. Unwrapping the paper revealed a piece of candy. He left before I could say anything. It tasted like lemon, bittersweet.
+“Make time for tomorrow, your clothes look too shabby.”
 
-\*\*\*  
-The servants began taking our plates away, serving us after dinner tea. I’ve never had so much sugar in one day before. After the main dish, venison, was served, the desserts began rolling out. It was my favorite part of this meal. My stomach was filled to the brim. Mom looked happily at me seeing me wipe each and every plate given to me, she herself had only eaten about half of each, even the desserts.
+I stood in front of a mirror double my size. Did it really have to be that big? It made me look much shorter than I really was. I saw my mom stand behind me, she was a head taller. I better make sure to eat more nutritious things. 
 
-“Where are my brother and sister?” 
-
-“They are out managing their own territories.”
-
-“I already sent out a letter telling them to come.” I sipped the hot tea.
-
-“Were going to visit your mother tomorrow, so go buy yourselves some proper clothing.”
-
-My grandmother wasn’t staying at the family Estate but at one of the church-TKsomethingwithrecuperating. It was one of the most advanced facilities in the empire employing only the best priests and healing mages. The only problem being that she felt lonely as the priests needed to precisely control all variables. There was no point in doing so anymore. 
-
-A seamstress took my dimensions as I spun around and lifted my arms up and down. She flitted happily around and discussed my dresses with her assistant. 
+A seamstress flitted around me, taking my dimensions as she made me spin around while lifting my arms up and down. She looked happy discussing what dresses fit me with her assistant.
 
 “Golden hair and azure eyes, I think this design fits the best.” She held a design for a dress in her hand. TKdressDescription the skirt bloomed outwards stopping a bit below the knees. It was intended for young ladies like me. It looked pretty.
 
@@ -93,6 +84,8 @@ A seamstress took my dimensions as I spun around and lifted my arms up and down.
 
 “Which one do you like, sweetie?” My mom had already chosen a pair of designs, she said she picked the ones she used to wear. Maybe I could pick something similar to hers.
 
+“Which one do you like, sweetie?” The duke had also ordered my mom to pick a few and make herself look presentable. She looked in her element as she wore that TKdress. 
+
 “I think this one would look cute on you\!” She picked the one with the knee-length skirt and ribbons. 
 
 “Ah\! Lady Victoria\!” The seamstress yelled.
@@ -101,73 +94,46 @@ A seamstress took my dimensions as I spun around and lifted my arms up and down.
 
 “That's right\! How could we forget\! Assistant, pick out all the cutest ones\!”
 
-\*\*\*  
 My new dress bounced up and down whenever the carriage rattled on the road. This one was ten times better than the other carriages as it had some kind of suspension system. It was fancy too, even bearing the Nikodemus family crest.
 
 I kicked my legs back and forth watching the dress ripple softly. The seamstress also gave me a pair of new gloves which fit snugly like a glove, or a like the stockings I wore. My mom sat beside my dad who had his arms crossed. I sat with His Grace, who also had his arms crossed. Once again, our carriage ride rolled to its destination, only the sound of the slightly less rattling wheels could be heard.
 
-We arrived at the facility that looked like a big church. The brick walls stood menacingly and with the combined height of the spiked roofs, made it towering above us. The main tower seemed to want to pierce the sky.
+Today was Sunday, which meant visiting the church. I didn’t like the church. Back in Barre, whenever we visited, I always felt the priests staring at me. Whether they were curious about my body didn’t matter to me. Their stares were irritating. At least Karrie and Eric were there to chat with, how would I pass my time now?
 
-“Thank you for greeting us with your presence, Your Grace.” A priest had welcomed us into the facility. 
+The church in Barre was big. This one was enormous. The brick walls stood like towers watching over us. Combine that with the height of the spiked roofs made it look like the goal had to pierce the heavens. A big belltower rang, signaling the start of today’s service.
 
-“It’s no problem, keep up the important work.”
+TK mass, maybe hear another buddhism teaching thingy
 
-“Her Grace is currently resting in the courtyard, please allow me to guide you.”
+A priest greeted us after the mass. “Thank you for greeting us with your presence today, Your Grace.”
 
-The facility looked exactly like a church, the only difference being there was no altar or a statue of the goddess. I felt my mouth smile.
+“It’s nothing, I should be the one thanking you for spreading the word of the Goddess.” The Duke shook his hand.
 
-The courtyard was even bigger than the one at the estate, it looked like a small forest, where all the trees and plants had been personally cultivated by numerous talented gardeners. I spotted an elderly looking woman sitting on a bench basking in the sunlight with a blanket over her legs.
+“Its a wonder that a man such as you is a devout believer, it really fills the heart of this old man.”
 
-My grandfather said something first upon spotting his wife. “Rosalyn.” He smiled gently as he called out to his wife.
+“If you are old, then what does that make me?” They looked like how my father laughed with Karrie’s father.
 
-“Oh, is that you, Gregor?” She held her husband's hand.
+“Who did you bring with you today? Did you have a child hidden somewhere?”
 
-“What brings you here?” Her eyes looked at his voice with gray dreamlike eyes.
+“...”
 
-“I took that brat with me.” 
+“Remarkable…”
 
-“Galen is here?” She opened her eyes wider.
+The duke then introduced us, saying that due to personal reasons, he called his son back. 
 
-“Hello mother, I’ve come to visit.”
+“You must be Esther then, would you mind if I tried to use some of my divine magic on you?” 
 
-“Oh my goddess\! Galen, it’s really you\!” My father had let her feel his face. 
+“Yes, I would mind. I’d rather you didn’t” 
 
-“It has been so long…” I had to squint upon seeing her smile. 
+“Esther\! Why are you being so rude?” My mom asked. 
 
-“Welcome back, my son”. She patted my father’s hand as she smiled brightly. 
+Divine magic wouldn’t work on me anyway, why should I let them do whatever they wanted? I wasn’t some test subject for their enjoyment. Look, he has that curious look on his face too. They are all the same aren’t they. 
 
-“Did you bring Victoria with you?”
+“Oh, it’s alright, curiosity got the better of me. I hope you can forgive me for stepping over the line.” His eyes narrowed. 
 
-“I’m here, Your Grace.”
+“It’s fine, I know you didn’t mean anything by it.” 
 
-“My, how thin your hands have gotten, are you eating properly?”
+“Haha, such an understanding child, I can already see the bright future ahead of you\!”
 
-“Of course, these days have been a bit hectic is all.”
+“My name is TKpriestname, should there be something that bothers you, feel free to visit our church again.”
 
-“You should take better care of yourself, you're still young.”
-
-“I could say the same about Your Grace.” Mom’s smile looked like grandmother’s.  
-   
-“All these years and you still try to flatter me.” They gave out a chuckle together.
-
-“How old is your daughter now?”
-
-“You could ask her yourself”, she said cheeringly.
-
-“You mean?”
-
-My mom pulled me forward. “Hello, my name is Esther, I’m fourteen. Your Grace.” I tried to say grandmother.
-
-“What a sweet voice, can you come closer?” I stared at her black hair. 
-
-“You won’t mind this old wrinkly woman feel your face will you?” I stared at her crow’s feet.
-
-“My\! You look just like Victoria\!” I stared at the mole under her eye. 
-
-“Hello, Esther. My name is Rosalyn Nikodemus.” I stared at her dimples.
-
-“But I would prefer it if you would call me grandmother.” I had seen her before. 
-
-Karrie had been the only person I recognized from my previous life. A coincidence, I convinced myself, it didn’t make sense otherwise. Yet here was another case. She sat there smiling, not even noticing that my eyes were stabbing into her. 
-
-I had killed this woman before.
+TK end chapter

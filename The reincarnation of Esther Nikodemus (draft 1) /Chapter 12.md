@@ -32,7 +32,7 @@ I mirrored the curtsy my mom had done. “Hello, my name is Esther. I’m fourte
 
 We were being led down a long carpeted hall by the butler, it felt weird walking on something so soft and squishy. 
 
-“It’s a shame that Master TKgale’sbrothername and Miss TKgale’ssister isnt here to keep you company.”
+“It’s a shame that Lord Gilbert and Lady Grace aren't here to keep you company.”
 
 “Alden.” My father stopped walking. “I’m only here for one purpose, just take me to my father.”
 
