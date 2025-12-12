@@ -2602,11 +2602,11 @@ I watched as my father carried my crying mother to the couch. I couldn’t help 
 
 “This is your room Miss, do you have any questions?”
 
-The room was as large as our house in Barre. It had a big bed, a big closet and a big vanity desk. Reflected on the mirror of the vanity desk was me. Long blond hair and puffy blue eyes. I had gotten used to seeing this face whenever something shiny reflected it, however today it looked completely bizarre. 
+The room was as large as our house in Barre. It had a big bed, a big closet and a big vanity desk. Reflected on the mirror of the vanity desk was me. Long blond hair and puffy blue eyes. I had gotten used to seeing this face whenever something shiny reflected it, however today it looked completely bizarre.
 
 Outside the big window situated on the third floor was the garden. A green color had begun taking over the place and I saw some flowers looking up at me from the square and circle bushes. I closed the curtains.
 
-“Everything in here is mine?” 
+“Everything in here is mine?”
 
 “That’s right.”
 
@@ -2618,7 +2618,7 @@ Outside the big window situated on the third floor was the garden. A green color
 
 “Can you remove these flowers for me?”
 
-The maid that had been assigned to guide me paused for a second, she looked to be in her twenties. 
+The maid that had been assigned to guide me paused for a second, she looked to be in her twenties.
 
 “Of course Miss.” The flowers on the circular table in the middle got swiftly removed, vase and all.
 
@@ -2628,7 +2628,7 @@ Sunlight tried to pry itself through the windows. Drawing all the curtains made 
 
 Spread in front of me were several knives, forks and spoons. They glistened as the embroidery caught the light from the chandelier. The maids and servants began laying out the food. At the head of the table sat my grandfather, Duke Nikodemus. To his right sat my dad and mom, with the former sitting closer. I sat opposite of mom, making the seat between His Grace and I empty.
 
-I copied what my mom was doing, start on the outside then work yourself inward. Holding the fork on my left and knife on my right, I cut into the thick piece of meat on my plate. It was tough. There was no problem with the cutting, but my left hand couldn’t anchor the steak properly, letting it slide with the motion of my knife. Feeling frustrated, I was about to give up when my plate disappeared and a new one replaced it. My father had given me his already cut plate of steak. 
+I copied what my mom was doing, start on the outside then work yourself inward. Holding the fork on my left and knife on my right, I cut into the thick piece of meat on my plate. It was tough. There was no problem with the cutting, but my left hand couldn’t anchor the steak properly, letting it slide with the motion of my knife. Feeling frustrated, I was about to give up when my plate disappeared and a new one replaced it. My father had given me his already cut plate of steak.
 
 “Tsk, she doesn’t even know how to use a fork and knife. What have you been teaching her?”
 
@@ -2642,7 +2642,7 @@ My father put down the utensils. “That’s enough.”
 
 “And what’s up with that glove of hers.” Mom looked at me with a sad expression.
 
-Dessert was served after we finished the main dish. I’ve never seen so many different types of sweets before. There were cakes, cookies and even some wobbling thing. It tasted sweet and cold. I ate another one. 
+Dessert was served after we finished the main dish. I’ve never seen so many different types of sweets before. There were cakes, cookies and even some wobbling thing. It tasted sweet and cold. I ate another one.
 
 “Look at her stuffing her face, I ought to give her a tutor.”
 
@@ -2656,23 +2656,19 @@ After dinner, I went around to explore the estate. It almost seemed like a museu
 
 “No, this is the only one he left with me.”
 
-I looked at him. He was neatly dressed in a suit standing with a straight posture. It was hard to read his face as he stared at the painting, neither smiling nor frowning. His dark eyes were calm like the mountains I saw on the way here. The combined features really made one feel intimidated in his presence.
-
-I looked at him. He was neatly dressed in a suit standing with a straight posture. It was hard to read his face as he stared at the painting, neither smiling nor frowning. His eyes were a little sunken, making him look a bit tired. Oh, I forgot to greet him. The peculiar atmosphere surrounding us made me hold my silence, the timing was long gone. Well, no matter. He can’t expect me to know perfect etiquette. 
-
-The painting looked similar to something that was at the back of my mind. It’s raw face, I had seen it somewhere. 
+I looked at him. He was neatly dressed in a suit standing with a straight posture. It was hard to read his face as he stared at the painting, neither smiling nor frowning. His eyes were a little sunken, making him look a bit tired. Oh, I forgot to greet him. The peculiar atmosphere surrounding us made me hold my silence, the timing was long gone. Well, no matter. He can’t expect me to know perfect etiquette.
 
 The painting looked similar to the paintings the temple liked to hang up. I had always wondered why they did that, hanging up paintings of demons. An answer had reared itself in my mind. It was a mirror, a painting of yourself.
 
 “Why do you think I had this painting hung up in the main hallway?”
 
-“As a reminder, Your Grace” 
+“As a reminder, Your Grace”
 
 He paused. “Interesting. I haven’t heard that answer before.”
 
 “Make time for tomorrow, your clothes look too shabby.”
 
-I stood in front of a mirror double my size. Did it really have to be that big? It made me look much shorter than I really was. I saw my mom stand behind me, she was a head taller. I better make sure to eat more nutritious things. 
+I stood in front of a mirror double my size. Did it really have to be that big? It made me look much shorter than I really was. I saw my mom stand behind me, she was a head taller. I better make sure to eat more nutritious things.
 
 A seamstress flitted around me, taking my dimensions as she made me spin around while lifting my arms up and down. She looked happy discussing what dresses fit me with her assistant.
 
@@ -2682,11 +2678,9 @@ A seamstress flitted around me, taking my dimensions as she made me spin around 
 
 “Assistant\! What should we do? Everything fits the young miss\!” They discussed noisily as I posed for them.
 
-“Which one do you like, sweetie?” My mom had already chosen a pair of designs, she said she picked the ones she used to wear. Maybe I could pick something similar to hers.
+“Which one do you like, sweetie?” The duke had also ordered my mom to pick a few and make herself look presentable. She looked in her element as she wore that TKdress.
 
-“Which one do you like, sweetie?” The duke had also ordered my mom to pick a few and make herself look presentable. She looked in her element as she wore that TKdress. 
-
-“I think this one would look cute on you\!” She picked the one with the knee-length skirt and ribbons. 
+“I think this one would look cute on you\!” She picked the one with the knee-length skirt and ribbons.
 
 “Ah\! Lady Victoria\!” The seamstress yelled.
 
@@ -2694,49 +2688,79 @@ A seamstress flitted around me, taking my dimensions as she made me spin around 
 
 “That's right\! How could we forget\! Assistant, pick out all the cutest ones\!”
 
-My new dress bounced up and down whenever the carriage rattled on the road. This one was ten times better than the other carriages as it had some kind of suspension system. It was fancy too, even bearing the Nikodemus family crest.
+My new dress bounced up and down whenever I kicked my legs, creating soft ripples across the fabric. The seamstress also gave me a new pair of gloves which fit snugly like a glove, or like the stockings I currently wore. A plate of cookies was served to me as I sat with my mom in the gazebo in the garden. She was taking a nap with a cookie in her hands.
 
-I kicked my legs back and forth watching the dress ripple softly. The seamstress also gave me a pair of new gloves which fit snugly like a glove, or a like the stockings I wore. My mom sat beside my dad who had his arms crossed. I sat with His Grace, who also had his arms crossed. Once again, our carriage ride rolled to its destination, only the sound of the slightly less rattling wheels could be heard.
+Sound of clashing and roars shook the otherwise calm afternoon. Investigating what was happening, I found myself looking on at dozens of knights training with their shirts off. The glistening sweat dripping down their muscles flew off each time they swung their swords. A commander was yelling orders at them.
 
-Today was Sunday, which meant visiting the church. I didn’t like the church. Back in Barre, whenever we visited, I always felt the priests staring at me. Whether they were curious about my body didn’t matter to me. Their stares were irritating. At least Karrie and Eric were there to chat with, how would I pass my time now?
+Surrounding the training area in the middle were several raised tribunes, which made it look like an arena. I wonder why they need so many seats.
 
-The church in Barre was big. This one was enormous. The brick walls stood like towers watching over us. Combine that with the height of the spiked roofs made it look like the goal had to pierce the heavens. A big belltower rang, signaling the start of today’s service.
+“Look over there man, there’s some kid watching us.”
 
-TK mass, maybe hear another buddhism teaching thingy
+“Kid? There’s no kid in the estate, just focus on your breathing.”
 
-A priest greeted us after the mass. “Thank you for greeting us with your presence today, Your Grace.”
+“Over there, she’s just sitting there.”
 
-“It’s nothing, I should be the one thanking you for spreading the word of the Goddess.” The Duke shook his hand.
+The young man sitting on the ground pointed at me. The other person went up to me and with the raised seats, made him have to look up at me. It felt weird not having to crane my neck talking to someone.
 
-“Its a wonder that a man such as you is a devout believer, it really fills the heart of this old man.”
+“Miss? What are you doing here?” His green hair reminded me of Finn.
 
-“If you are old, then what does that make me?” They looked like how my father laughed with Karrie’s father.
+“She’s obviously here to cheer us on\! Isn’t that right?” The other one had brown-orange hair and freckles.
 
-“Who did you bring with you today? Did you have a child hidden somewhere?”
+“How heavy is that?” I pointed to the sword on his hip.
 
-“...”
+“Do you want to try to hold it?”
 
-“Remarkable…”
+“Hey, what are you saying to her?”
 
-The duke then introduced us, saying that due to personal reasons, he called his son back. 
+“Here grab the hilt, be careful not to fall over the wall.”
 
-“You must be Esther then, would you mind if I tried to use some of my divine magic on you?” 
+It was surprisingly light. His comment about falling over the wall had made me expect something heavy, but the tip of the sword pointed towards the sky with a single hand. I gave it a few swings creating a swooshing sound.
 
-“Yes, I would mind. I’d rather you didn’t” 
+“Hmm, surprisingly good form.” Green hair said.
 
-“Esther\! Why are you being so rude?” My mom asked. 
+“Now try to do this\!” Freckles showed me a move with his hands. It this it? The sword cut through the air.
 
-Divine magic wouldn’t work on me anyway, why should I let them do whatever they wanted? I wasn’t some test subject for their enjoyment. Look, he has that curious look on his face too. They are all the same aren’t they. 
+“Haha\! You got talent for this little miss\!”
 
-“Oh, it’s alright, curiosity got the better of me. I hope you can forgive me for stepping over the line.” His eyes narrowed. 
+“What are you two fools fooling around here for?” A man went up to them.
 
-“It’s fine, I know you didn’t mean anything by it.” 
+“Commander look at her form when swinging\!”
 
-“Haha, such an understanding child, I can already see the bright future ahead of you\!”
+“What nonsense, why should I—” I did the same move.
 
-“My name is TKpriestname, should there be something that bothers you, feel free to visit our church again.”
+“Hmm… not bad.” The man rubbed his moustache. It twirled above his mouth in two neat circles.
 
-TK end chapter
+“But I’m wondering about something. Who gave this young lady a sword\!” The commander gave the young men a kick to their behind. “Go back to your post\!”
+
+The two of them, staggered back to their spot while rubbing where they had been kicked.
+
+“My apologies for showing you such a sight, they are good but still young.”
+
+“Why are you being so formal to me?”
+
+“You’re miss Esther are you not? It’s hard to find someone with such brilliant hair. Your father and I used to be brother’s in arms.”
+
+“Really?”
+
+“He hasn’t told you?” He looked a bit sad.
+
+“My father doesn’t talk much about his past.”
+
+The commander rubbed his moustache again. “I see, considering what happened… nevermind. What are you doing over here?”
+
+“It was interesting. And loud.”
+
+“Loudness is the primary source of our energy after all.”
+
+TK continue scene
+
+I was still observing their training when a servant called for me. The duke was calling me to his office. Sitting around the tea table was both of my parents. The steam coming from their cups had already vanished.
+
+“Do you know why you were called?”
+
+“I do not, Your Grace.”
+
+“I have decided to send a tutor for you. Go learn how to act like a noble tomorow.”
 
 # Chapter 14: tutor
 
@@ -2906,6 +2930,9 @@ Holding my lucky coin, I flipped it into the air. Heads, I kill her. Tails, I le
 
 But how would I go about killing her? The goddess wouldn't let me kill her. She wouldn’t let me kill anything for that matter. A fly buzzed around my room a few days ago. Smacking it had no effect as I saw the thing fly away. It was now laying dead in the box I trapped it in. 
 
+TK maybe put in flashback or life lesson type beat, or talk with victoria  
+TK flashback about ghosts.
+
 There was no lesson today, meaning no Baroness Bayonne to torment me. 
 
 “Young lady, is something the matter?”
@@ -2986,12 +3013,177 @@ I took a final glance at the place before holding my mom’s hand. This place wo
 
 # Chapter 16
 
-Chapter 16 murder mystery? A detective character investigates  
-Start of the plan.
+Planning a murder wasn’t hard. One, decide on a murder weapon. Two, find a secluded space. Three, try not to let the Goddess interfere. This put a wrench in my usual planning, I couldn’t personally kill them. The Baroness was sleeping in her bed, not even noticing that someone had snuck in.
 
-The duke called me to his office today. 
+It wasn’t particularly hard to do, the door wasn’t locked after all. Such a careless woman was the one tutoring me? I thought it to be absurd as I rummaged through her drawers. There was nothing interesting to find. This woman was getting paid one gold every week, where was she using it?
 
-“Alden, why haven’t the baroness arrived yet?”
+Next the closet. Three identical green dresses greeted me as they hung limp in the moonshine. Actually, not identical. One of them had a different embroidery on the sleeve, another had a different neckline and that one had pockets sewn onto it. Looking at the other eight dresses all neatly lined up in different shades of green, lime and even verdant, didn’t make it hard to learn that her favorite color was green.
 
-“Let me go check again, your grace.”
+The old woman stirred as I closed the closet. She rolled over to her side with an unpleasant expression, and snoring sounds began to rise from her mouth. Should I try suffocating her? My legs stood right beside her bed. Wrap my hands around her neck and cut off the air making her snore. My hands shrunk back to the sides of my body, they only managed to wrap halfway across her neck.
+
+About to leave her bedroom, something shining in her bed caught my attention. She was clutching a box.
+
+There was no lesson today, meaning no Baroness Bayonne to torment me.
+
+“Young lady, is something the matter?”
+
+A pair of maids stood in the hall busily dusting away the displayed decorations. One of them was a vase with yellow flowers.
+
+“Do you want some candy?”
+
+“Stop giving her whatever is in your pocket…”
+
+This maid occasionally gave me candy and had been witness to the incident with the plates. Her hair was braided in a ponytail that fluttered in the air whenever she turned. Looks like it was strawberry flavored this time.
+
+I gave her one of my more practiced curtsies. “Thank you.”
+
+“Ah, how cute\!” The candy maid squealed.
+
+“You’ve improved a lot haven’t you?”
+
+“Of course she has\! Why else would that sour woman still be getting paid\!”
+
+“Hmm, you’re right about that”
+
+The other maid poking her own cheek had a mole above where her finger was. It suited her.
+
+“My lady, can you do this with your hands?” Her hands were sticking out from the top of her head.
+
+“Now tilt your head a little and say—”
+
+“Meow?”
+
+Candy maid fell to her knees as if she had been shot. She was clutching her chest. “Ah, my heart\!”
+
+“Pfft\! Ahaha\! Stop teaching her to do silly things\! Bwahaha\!”
+
+I didn’t know what was so funny to them, still this had become a routine of sorts every time I met them. Hearing their laughter echo across the hall did make me feel a bit more upbeat.
+
+“Do you want to play with us today? We still have some work left to do…”
+
+“It’s okay, I don’t want to play today.” They both gaped.
+
+“Huh? Why not? Did that woman do something again?” The candy maid shook her fist. “I ought to really give her a talking to.”
+
+“Ha… And what are you going to say to her? Alden personally hired her, you know?”
+
+“Oh, my little lady, how my heart aches for you\!”
+
+“You’re being a bit dramatic.”
+
+“Pfft\!”
+
+“I’m on a mission today.”
+
+“A mission you say? That sounds very serious”, said the other maid.
+
+I nodded.
+
+“Well, good luck on your mission, and let us know if some scoundrel shows up okay?”
+
+“We’ll beat them black and blue for you\!” I returned their wave with my own.
+
+“My, if it isn’t little miss Esther\! Sorry but I already promised Lady Victoria that I wouldn’t give you any more snacks.” He closed one of his eyes. “Here take this.” The chef handed me a cookie, it tasted buttery.
+
+The kitchen was always busy with several people flying around. There were many employees that worked and lived in the estate, and ensuring enough food for them was tiring work. A delicious smell wafting in the air made my mouth water a little.
+
+“What are you making today?”
+
+“Hmm, we got our hands on some prime cuts of deer today. Pair that up with some wine reduced demi-glace and garlic infused mushrooms and there you have it. How does that sound?”
+
+“Sounds amazing.”
+
+“Haha\! Amazing indeed\! You always have the best compliments.”
+
+“Then, can you make my plate have fewer mushrooms this time too?”
+
+“Miss Esther, you shouldn’t be too picky with your food, you know? Even my daughter is taller than you.” He indicated with his hand her height. It was half a head above my own.
+
+“I can’t get taller by eating mushrooms.”
+
+“On the contrary, I heard someone say mushrooms make you taller.” He smiled with a big golden circle on his mouth."
+
+“Please?”
+
+“That won’t work on me, miss.” He crossed his burly arms.
+
+Fine, let me try that move. Hands above my head alluding to ears of some kind, tilt my head twenty degrees to the left, and finally.
+
+“Please?”
+
+He stared sideways at me.
+
+“Ha… But this is the last time okay?”
+
+“Thank you my good sir.” I gave him my curtsy, making him give a hum of approval.
+
+“Speaking of, have you seen my locket?” I glanced at his neck, there was nothing there today.
+
+“Did you lose it?”
+
+“It appears so… Keep an eye out for it okay? I will do whatever I can if you can find it.”
+
+I nodded.
+
+Standing in the forest-like garden, I stared at the gardener snipping off flowers. The large scissors made quick work as he cut them across their body, letting their heads fall pathetically to the dirty ground.
+
+“Well if it isn’t Eshter, what brings you here to this old man today?” He went down the ladder upon spotting me.
+
+“Do you know of any good hiding spots? I need to find a secluded space.”
+
+“Hello, Sir Gardener. Do you know of any secluded spots in the garden?”
+
+“Secluded you say? Are you playing hide and seek outside this time? That’s good, someone young like you should take in the fresh air instead of staying cooped up all the time. I remember when— oh, my apologies. Let's see… there is the area behind the annex, the shed, oh. Maybe the abandoned church would be a good hiding place?”
+
+“Abandoned church?”
+
+“Shocking isn't it? The previous Duke was such a devoted man that he constructed a small church behind the annex where we live, or so they say. Don’t tell anyone this, but the former Duke told me that the weekly trip to the main church in the duchy had taken too much of his time. I need to visit the church every Sunday? Then just let me construct one in my back yard\! Hah\! What a remarkable man.”
+
+My mind went blank while listening to him regale his story.
+
+“It’s over there if you want to check it out, be careful not to trip on the roots okay?”
+
+I hopped around the forest that stood behind the annex. The building was a little smaller than the main building but it was longer. Finally reaching the first trees had already made me sweat. And there it was, a gray building where nature itself had taken over. Vines spread around and wrapped itself on its walls, and green moss had found their home, acting just like a carpet. A green carpet that welcomed me into this broken down church.
+
+The Goddess stood in her always indifferent pose looking down at me. A hole in the ceiling made the sunlight stream in, lighting up the broken brick particles, as it caressed the statue, lighting her face up. Stop acting all important. The hole was just a coincidence.
+
+Sitting on one of the few usable benches, all I could hear was the soft rustling of leaves and vines. The statue stood at the top of the altar, where vines had wrapped itself all over it and small cracks could be seen here and there. Even in that state of decay, her face had been free of invading plants or cracks. She just stood there, happy, smiling like an idiot. Your stupid little tricks won’t stop me this time.
+
+The gentle wind and the calm atmosphere tried to lull me to sleep. My body felt heavy as I had exerted a lot of energy coming here.
+
+“There you are, my sweet daughter.” My mom sat down beside me.
+
+“Does the statue of the Goddess still make you feel uneasy?”
+
+“How did you know?”
+
+“You’re my daughter are you not? Your mother knows everything.” She stared at the statue.
+
+“But you know Esther, If there is someone to blame, then it would be me.”
+
+“What do you mean, mom?”
+
+“If only I had been more watchful that day, then those things wouldn’t happen to you…”
+
+“It’s not your fault, mom.”
+
+“If not mine, then whose? Who can I blame if not myself?” My mom didn’t smile anymore as she bowed her head.
+
+“I’m sorry Esther… those things shouldn’t have happened to you…” She cupped her face.
+
+“Mom.”
+
+“And now we have to stay here for who knows how long…”
+
+I shook my slumped over mother. “Mom, I’m fine.” Her face scrunched up, making lines between her nose and eyebrows.
+
+“It’s fun here at the estate. The food is good and the bed feels like a cloud.” I listed all the interesting and fun things I had experienced at the estate. The maids that would sometimes give me candy, the chef that would let me taste new recipes and the gardener that meticulously pruned all the bushes and flowers. Paintings that showed different aspects of life and other things. I told her everything. My breath had run out at the end.
+
+“I see…” Good, she didn’t start crying.
+
+Her warm arms wrapped around me as her cheek nuzzled against the top of my head.
+
+“My daughter was having so much fun all this time… I didn’t even notice.” Her voice rumbled through my hair.
+
+We stayed at the abandoned church for a little while longer before a servant called us to dinner. Sorry mom, but there was one thing I didn’t mention. One thing that wasn’t fun.
 
