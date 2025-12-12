@@ -34,6 +34,9 @@ Holding my lucky coin, I flipped it into the air. Heads, I kill her. Tails, I le
 
 But how would I go about killing her? The goddess wouldn't let me kill her. She wouldn’t let me kill anything for that matter. A fly buzzed around my room a few days ago. Smacking it had no effect as I saw the thing fly away. It was now laying dead in the box I trapped it in. 
 
+TK maybe put in flashback or life lesson type beat, or talk with victoria  
+TK flashback about ghosts.
+
 There was no lesson today, meaning no Baroness Bayonne to torment me. 
 
 “Young lady, is something the matter?”
