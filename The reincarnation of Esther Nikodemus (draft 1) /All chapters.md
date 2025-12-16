@@ -3309,7 +3309,322 @@ His son had often asked him for something, but the way his face looked right now
 
 # Chapter 18
 
-Crap. The fire spread faster than I thought. 
+Amazing. Golden circles popped all over Baroness Bayonne's like fireworks. Each time an ember graced her skin it would appear. The sight mesmerized me. Even when surrounded by fire, her body was unharmed. Although the same couldnt be said about her gaudy green dress. The flames, robbed of their meal licked greedily at her dress, turning it into smoke and ash. It irritated my nose.  
 
-TK make esther get scolded by victoria for the first time
+Her body laid bare in front of the goddess, covered only by the annoying circles. Was it utterly impossible for me to harm another living being? The crackling sounds and the sharp golden lights filled my thoughts and as if to answer me, they stopped appearing. They weren’t appearing anymore. 
 
+Like a flash of lighting, her skin burned in a second. It even began to bubble in some areas. The fire had even spread to the vines laying under her as it catched her melting fat. It spread outwards like a spider net, eventually finding itself at the feet of the goddess. The vines wrapping around the goddess had catched on fire and began crawling upwards. 
+
+“Ha ha\!” 
+
+A laugh slipped out of me when I looked at her pathetic situation. How does it feel when your plan gets thwarted\! Look\! Her body is burning up\! Activate your stupid circles and lets see if it will do anything. Or you can just stand there getting scorched by the flames, see if I care. Her skin was covered by black soot and cracks as the fire dug into her. A picture of a witch burning on the stake filled my mind, fitting.
+
+Baroness Bayonne had become unrecognizable by now. Seeing something white in between the areas of black, I concluded that she had to be dead. There was no she could survive that. 
+
+The church looked like a torch standing there lighting up the surrounding trees. A billow of smoke rose into the night, blanketing the round stars. The moldy wooden roof had begun to burn, and with a loud crash, it collapsed on itself, sending several embers into the air and onto the orange trees. Crap. A forest fire had broken out. Sorry your Grace, I didn’t intend to burn the whole place down. 
+
+Peeking from a tree at the edge of the forest, I saw a gathering of people standing in front of me. Several knights were busy running back and forth from the estate to the forest, all the while holding buckets. The crackling sounds behind me edged closer and closer the longer I watched, a slight warmt touched my back. 
+
+“Cut down the trees\!” My father’s booming voice cut through the air. He was dangerously close to me. Hopping from tree to tree, I hid myself while widening our distance. Running back towards the church. Thumps filled the glowing forest as the ground shook from the impact of the felled trees. 
+
+Hastening my pace, my lungs felt like burning. He was getting closer and closer. The dark forest flitted by me as I ran in the opposite direction. It was the first time my height worked in my favor as the branches couldn’t even block my path. But it didn’t help my current situation, I was stuck between the growing fire and my father. 
+
+TK continue chase scene
+
+TK chase scene end
+
+“Eshter\!” Oh, he found me. He looked angry as well. 
+
+TK make esther get scolded by victoria for the first time/ mixed with a view of her real mother
+
+Karrie had always said that my mom was several times better than her own. I had agreed each time because it was simply true. Victoria was prettier with her unblemished fair skin and silky smooth hair, she wasn't too thin nor too thick and she had a gentle voice and face. This isn’t meant to make Karrie’s mom appear to be some hideous person, she was just, average. 
+
+However, standing here with my hands behind my back, I bit my lips. Gone was her gentle voice, gone was her gentle smile, and gone was the gentle mother who always gave me a hug. Victoria was standing there with a face that I never wanted her to wear. I averted my gaze and watched my feet instead. They were dirty.
+
+“Esther\!” My shoulders jumped.
+
+“What were you thinking\! How could you think of running towards the fire\! You could have gotten hurt\!”
+
+“Mom…”
+
+“I don’t want to hear it\! Do you know how scared I felt when you weren’t in your room again? And then the fire broke out\!”
+
+I felt my throat seize up.
+
+“What were you thinking\!”
+
+My ears rang.
+
+“Is it your intention to always worry me?\!” She was scary.
+
+“You’re going to ruin this family\!”
+
+“M-mom I didn’t—”
+
+“How am I going to pay the bills now?\! All you had to do was pour him a drink, its not that hard is it\!”
+
+“But he was making me uncomfortable…”
+
+“So what\! You don’t think I feel uncomfortable every working day?\! I had to even pay off their complaints\!” She was grabbing at her hair. She had used a lot of time to curl them this morning. Now it was all messed up.
+
+My mother grabbed her half drunk bottle. “AHHH\!” It slammed into the kitchen wall. The small remaining amount of liquid dripped down the walls. Making it even more dirty.
+
+“How could you not even entertain one damn guest\! You’re such a failure\!”
+
+“M-mom please calm d-down.”
+
+“How the hell am I supposed to calm down\! You think it was easy getting that job, huh? Do you have any idea the things I had to do\!?”
+
+“Mom… I’m sorry…” I grabbed at her legs on my knees.
+
+“Let go of my you disgusting parasite\!”
+
+“I w-will do better next time\!” I had to help my mother. She was always working so hard. That’s right, that’s all I needed to—
+
+Smack\! “There is no damn next time\!” My head hit the messy floor. Why was it always so messy.
+
+“Get the hell out of my house\!” 
+
+“Mom…” The pain made me cry. 
+
+“I should have never had you\!”
+
+She didn’t mean that. I just had to wait a little. I just had to wait until she opened the door again.
+
+“Mom, let me in please\! Open the door\!” Whether my hands were red from the cold night or the banging on the locked door, I don’t know. I just know that my mother would let me in soon.
+
+“I swear to do better\! Please\!” She would let me in soon.
+
+“Mom… don’t abandon me…”
+
+“What’s wrong?”
+
+“I didn’t mean to worry you…”
+
+“I know you did, I’m sorry for yelling at you.”
+
+“It’s my fault… it’s all my fault mom…”
+
+“Don’t say that, you’re my daughter.”
+
+“Please, hic\! Don’t abandon me again.”
+
+“Huh?”
+
+“I’m sorry mom, I will do anything, please give me another chance\!” Why couldn’t I just pour them a drink.
+
+“Sweetie, what are you saying?” Fill their cup with that disgusting liquid.
+
+“I will help us get money\! I will help you at work\!” I tried to smile. I had to.
+
+“Esther, what are you saying?”
+
+“You won’t have to worry about me anymore\! Just don’t throw me out\!”
+
+“Gale, something is wrong with her\!”
+
+“Mom, it’s scary…”
+
+“Esther\!” Something shook my body.
+
+“It’s scary…”
+
+# Chapter 19
+
+TK flashback or temple scene. maybe talk about ghosts, the kind that latches on the mind.
+
+“Have you ever seen a ghost before?” 
+
+“I don’t believe in ghosts.”
+
+“Why not?” The monk had brewed some pu-erh tea, it looked brown and smelled like fish. I’d rather have plain green tea over this.
+
+“We all have four ghosts hovering above us you know?”
+
+“What? You have killed four people?”
+
+“Ha ha\! I didn’t mean it like that.” His round belly shook from the laughter. 
+
+“Each person has four ghosts attached to them. One, the ghost of attachment. This one affects our wants. Two, the ghost of idk. Three, the ghost of idk. And four, the ghost of idk.”
+
+“How about it, makes sense right?”
+
+“Not really.” I thought of my mom, what ghost had taken over her?
+
+“Then what about real ghosts?”
+
+“Those exist too of course”, he smiled. “Why do you think food is always offered on the altar?”
+
+Victoria and Gale watched as their daughter collapsed from her crying. 
+
+Victoria and Gale watched their daughter collapse from her wailing. They had initially intended to only ask her why she was gone from her room that night, but emotions were hard to predict and Victoria’s had reached it peak. How could she maintain her cool when her daughter came back covered in soot and ash. What was she even doing there?
+
+However none of that concerned them. Esther had told them something nonsensical between her sobs. Sobs which had come out of nowhere. Victoria hadn’t even begun her tirade when their daughter’s body suddenly trembled and fell to her knees. She said she was sorry, but why? Esther had always been the apple of their eye. Holding his limp daughter in his arms, Gale thought she weighed too little. Add onto that her past history of illnesses, and they couldn’t help but love their pity daughter. She had never complained, not even a grumble and always did what they told her. It had continued even after she lost her memories.
+
+A part of her nature, they thought. However, seeing the terrified face when Victoria scolded her, they knew that something was wrong. Oh Goddess\! Whatever did our daughter do to deserve this? She recalled that time when Esther had screamed and cried in front of the Goddess. It was the first time she saw Esther behave like that. It wasn’t normal.
+
+Victoria stroked her sleeping daughter’s hair. Small bits of ash and burnt bits were stuck in her hair, eventually staining her own hand. A seed of guilt grew in her as she plucked all the dirty bits from her hair. There had been no need to scold her, she was smart enough to know the dangers of fire. Still she had to, just this once. And the result was this. 
+
+She felt her shoulders warm up as Gale draped his coat around her. 
+
+“What do you think she meant?” She grasped her husband hand on her shoulder.
+
+“I’m not sure, but she didn’t look to be in the right state of mind.”
+
+“What happened in Barre and now this… I can’t help but worry, Gale.”
+
+“I know.”
+
+“She’s still just a girl. So much has already happened to her.”
+
+“We just have to do what we always do.”
+
+“What if she loses her memory again? She had just begun to look happier…”
+
+“Let’s not think about it anymore. We just need to care for her like always.”
+
+“You’re right…”
+
+Gale stood and watched his wife watch over their sleeping daughter. He had thought himself lucky to have such a beutiful family, but it seemed like the world had turned agaisnt them. He had been shocked when Esther told him that she didn’t like the statues of the Goddesses. It was a blaspheme comment coming from his own daugher, however he couldn’t help but agree. If the goddess was as benevolent as they said, why didn’t she once show our daughter a ounce of it? Victoria had nodded off sleeping in the chair again. It seemed she slept better this way.
+
+My body ached. I didn’t die again did I? Good, my left hand still looked disgusting. Yesterday felt like a daze, only one thing had remained in my memories. The baroness was no more. 
+
+My sleeping mom’s visage greeted me as I struggled to sit up. It seems like I had done it again. My teeth bit into my lip as I had broken one of my own promises, that I would never worry her again. Sliding my legs out of the bed, I felt the smooth grain of the wooden planks underneath my feet. It robbed me of the remaining warmth in my body. A loud thump sounded as I stood up.
+
+I collapsed onto the floor? “Huh?” 
+
+“Hmm…” My mother stirred to life as her towering figure stretched towards the heavens. My body flinched for some reason. 
+
+“Oh\! What are you doing on the floor?” Her blanket flew off as she raced toward me. I felt my body lift up as she pulled me back onto the bed. I sat on the edge of the bed looking up at her.
+
+“Mom, did you get stronger?” 
+
+“Your mom is always strong you know?” Her smile was gentle as always. 
+
+“Where’s father?”
+
+“Do you want me to go fetch him?”
+
+“No, its okay… What happened to the fire?”
+
+“We managed to extinquish it, the rain helped us a lot that day.”
+
+“What about the church?”
+
+“We had to demolish it.”
+
+“I see.” The sun had painted the room in a light hue, making things look brighter than ever  today.
+
+“You should probably wash up, it’s been a few days.”
+
+“Days?” What did she mean by that."
+
+“Oh, you have been in bed for the past three days. Don’t you remember?”
+
+Something was gripping my heart. I didn’t know what it was, but it hurt. It hurt really bad.
+
+TK make mc visit the people she met before the fire.
+
+“Good morning miss\! How are you feeling today?”
+
+“Good morning, I feel fine.”
+
+“Haa… its never fine when people say they are fine. Want a candy?”
+
+“Really? Oh, it’s lemon today.”
+
+“Miss, you shouldn’t trust her too much.” She whispered. “She hates lemon.”
+
+“Ah\! How could you say that in front of our adorable miss\!”
+
+The TKnoncandymaid shrugged. “Just saying the truth is all.”
+
+“Speaking of which, did you hear what happened to the baroness?” My ears turned to her direction. “I heard someone say that she ran away\! Not only that, but she had apperantly stolen a bunch of stuff too\!”
+
+What? She ran away? That didn’t make sense. 
+
+“That’s right, TK”
+
+“Good to see you up and active again little miss. Had us for a second when there\!” The cook laughed heartily. He handed me a cookie.
+
+“I thought mom stopped you from giving me snacks.”
+
+“Well… That’s right. You haven’t eaten anything the last days, think of it as a loan.”
+
+Nibbling on the cookie, sweet crumbs filled my mouth. It’s velvety texture and— Wait that wasn’t important right now.
+
+“The baroness? Don’t even mention her. Look.” He pulled out his necklace for me to see.
+
+“Who would have thought that she was the thief? Ridiculous, and they are the ones that keep saying that nobles are different than us commoners. Oh, we have nothing agaisnt you miss.”
+
+The gardener was cleaning up the burnt area with a shovel. “I knew I didn’t like her the moment I saw her, and once again my intuition was right. But who would have known that a person getting through the Duke’s screening would resort to such actions? Where she ran away to? I’m afraid that I don’t know that. She must have been an expert to disapper in the wind like that.
+
+Everyone was saying the same thing, that she had run away. It didn’t make sense. The burnt grass let out crunches and crackles as I stepped on them. The whole area was burnt, not a single flower was to be seen.
+
+The already shabby-looking church now looked even worse. The roof had disappered leaving only the walls to indicitate that it was a building. 
+
+It was gone. Where my feet were standing, her body should have been here, but it was gone. I had half-expected a chalk outline outlining her burnt corpse. It didn’t make sense. I saw the fire burn into her skin and bones, I even smelled it. There’s no way she could have survived that.
+
+“Did you do this?” How I wished that she would have burned down too. It just had to be made out of rocks.
+
+“What are you looking sad for? I should be the one being sad\!” The nerve on that goddess. You foiled my plans again and have the gall to cry?”
+
+“Stop getting in my way\!”
+
+A voice called out my name. 
+
+“F-father?” Did he hear me? “What are you doing here?”
+
+“That’s what I should be asking you.” His eyes made my neck hairs rise.
+
+“I can’t believe you returned back here even after what happened.”
+
+My throat began to clog up. 
+
+“Esther, I know what you tried to do. Unfortunately it failed.”
+
+Would I have to run away?
+
+“What do you mean?” Did I fail to clean up again? Was it too suspicous that I was at the site of the accident? A bunch of questions flooded my mind as I saw my father walk closer. I couldn’t move. 
+
+“Esther.” He grabbed my shoulder.
+
+“I’m sorry that the baroness couldn’t be saved. You must have felt devastated.”
+
+“Huh?”
+
+His face wall full of concern as the corners of his eyes shrunk into themselves. 
+
+“It’s okay, you did your best.”
+
+My father hugged me. Thank the goddess that he couldn’t see my face in this moment.
+
+# Chapter 20
+
+A week had passed since the people in the state was told that the baroness had run away. In those days, I have done nothing. No more lessons took up my spare time, the Duke was looking for a new tutor, and my parent’s were always hovering over me. It felt nice.
+
+Sitting in the shaky carriage did not feel nice. The idea of finally leaving the estate had made me forget how my body would react. 
+
+“Ugh…”
+
+“Tsk, a little shaking and you’re already this exhausted.”
+
+“Maybe the roads should be better maintained then.”
+
+My father and grandfather looked exactly the same as they crossed their arms at each other. We were visiting the church today. 
+
+TK church scene
+
+“Are you sure you don’t want to go around with us?” I glanced at the knights standing at attention around us. Mom didn’t even seem to care. 
+
+TK first trip in town\!
+
+TK introduce another male lead
+
+TK explore the duchy
+
+TK make mc meet someone, mention royal academy
+
+TK in in a montage or something where she learns the history.
+
+TK time skip to entrance test in capital, change the estate to be in the duchy  
