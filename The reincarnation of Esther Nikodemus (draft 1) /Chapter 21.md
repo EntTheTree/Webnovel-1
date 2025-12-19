@@ -74,10 +74,38 @@ He told her all the little tricks he knew, just like the cleaning spell he just 
 
 The girl looked to be more excited the more things he showed her. It was cute.
 
-“Mom\! I found a mage\!” Bouncing to her sleeping mother, she looked just like any other girl.
+“Mom\! I found a mage\!” Bouncing to her sleeping mother, she looked just like any other girl. Her moody face was now smiling, making him stunned for a second. 
 
 “Oh, did you get another friend?” They looked alike was his first thought. 
 
-“Are you going to attend the royal academy?” He asked.
+Esther grumped and told her that he wasn’t her friend, yet, that he was just some mage that she happened to meet. Her mother just smiled all the while listening to her daughter babble. It was an interesting sight, he had expected some haughty noblewoman or something similar, not a pretty lady taking a nap right on some park bench.
 
-TK scene where one of the guards and maybe aid tells him to stop running off. “Find everything about that girl” And if she will attend the royal academy
+“His name is TKprincename”
+
+TK continue scene
+
+They waved their farewells and went on their merry way. It had been a good break he thought. 
+
+“Your highness\!” Speak of the devil. A brown haired boy with round glasses about to fall of his face ran up to him.
+
+“Goodness, did someone die again or something?”
+
+“Yes\!” He straightened out his glasses. “But that’s not important right now\! Do you know how much paperwork you still have left to do?” His aide should have gotten familiar with his work life balance by now, poor fellow.
+
+“Just this morning—”
+
+“Find out which noble house she is from.”
+
+“What? Who? Why?” 
+
+“Noble house, Esther and because I’m interested in her.”
+
+“I don’t have time for this\!” 
+
+TKprincename patted his aide’s weary shoulder and gave him a warm smile. “I believe in you.”
+
+The aide’s glasses tilted to one side as his mouth stood wide open.
+
+“Oh, one more thing.” He was the devil he thought. “Find out whether she is going to attend the royal academy.”
+
+“Yes… your highness…”
