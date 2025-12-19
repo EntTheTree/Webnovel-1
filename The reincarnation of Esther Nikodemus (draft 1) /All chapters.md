@@ -3801,24 +3801,88 @@ He told her all the little tricks he knew, just like the cleaning spell he just 
 
 The girl looked to be more excited the more things he showed her. It was cute.
 
-“Mom\! I found a mage\!” Bouncing to her sleeping mother, she looked just like any other girl.
+“Mom\! I found a mage\!” Bouncing to her sleeping mother, she looked just like any other girl. Her moody face was now smiling, making him stunned for a second. 
 
 “Oh, did you get another friend?” They looked alike was his first thought. 
 
-“Are you going to attend the royal academy?” He asked.
+Esther grumped and told her that he wasn’t her friend, yet, that he was just some mage that she happened to meet. Her mother just smiled all the while listening to her daughter babble. It was an interesting sight, he had expected some haughty noblewoman or something similar, not a pretty lady taking a nap right on some park bench.
 
-TK scene where one of the guards and maybe aid tells him to stop running off. “Find everything about that girl” And if she will attend the royal academy
+“His name is TKprincename”
+
+TK continue scene
+
+They waved their farewells and went on their merry way. It had been a good break he thought. 
+
+“Your highness\!” Speak of the devil. A brown haired boy with round glasses about to fall of his face ran up to him.
+
+“Goodness, did someone die again or something?”
+
+“Yes\!” He straightened out his glasses. “But that’s not important right now\! Do you know how much paperwork you still have left to do?” His aide should have gotten familiar with his work life balance by now, poor fellow.
+
+“Just this morning—”
+
+“Find out which noble house she is from.”
+
+“What? Who? Why?” 
+
+“Noble house, Esther and because I’m interested in her.”
+
+“I don’t have time for this\!” 
+
+TKprincename patted his aide’s weary shoulder and gave him a warm smile. “I believe in you.”
+
+The aide’s glasses tilted to one side as his mouth stood wide open.
+
+“Oh, one more thing.” He was the devil he thought. “Find out whether she is going to attend the royal academy.”
+
+“Yes… your highness…”
 
 # Chapter 22
 
-“The royal academy?” My father had asked me what I knew of it.
+“The royal academy?” My spoon stopped shy of cutting into the jiggling pudding. 
 
-TK introduce academy explenation.
+“We have a lot of things to prepare and honestly, much of it won’t be that fun or interesting.” My mom said.
 
-TK scene where mc exchanges letters with karrie and eric, make eric also attend the academy. 
+“That’s why we want you to attend the royal academy next year.” My parents would soon be inheriting a noble title and all the obligations and duties following it. 
 
-TK in in a montage or something where she learns the history.
+“Is it some kind of school?” 
 
-TK time skip to entrance test in capital, change the estate to be in the duchy
+“School? You could call it that.”
 
-test  
+He went on to tell me about it. The academy took in a select dozen of students each year. An entrance test was the only criteria required to attend and students would lodge in dormitories for most of the year. It all sounded awfully similar. 
+
+“So I have to take a test?”
+
+Thinking back unto my school days it was filled with some of my most memorable memories. And some of my worst ones.
+
+“What do you say, Esther? Do you want to try it?” My mom asked.
+
+TK continue scene.
+
+“Hello, Karrie, I hope this letter finds you in good health. I tried to be but you know how it is. 
+
+“To my friend Esther, or should I write Esther Nikodemus? Imagine our shock when we heard that your week-long stay at your grandfather’s would get extended to a month and then forever\! And how could you not say that your grandfather was THE Duke Nikodemus? Besides the feeling of betrayal, everything has been great. 
+
+royal academy, eric something something.
+
+Miss you, hope to see you soon.”
+
+“The frigid cold capital air staining my lungs with… cold air is really different from how it was in Barre. I wonder if there is snow over there.”
+
+“Karrie reply. birthday idk”
+
+It was finally time. I have prepared for a year for this moment. Although that didn’t stop me from leaning agaisnt the carriage that brought me here. No preperation had helped me with this matter. 
+
+“Are you all right milady?” A maid that had accompanied me asked.
+
+“Urgh…”
+
+“It does look magnificent doesn’t it?” I couldn’t even nod as I followed her gaze.
+
+Right in front of me stood the entrance gate to the royal academy. It would be the place taking most of my time for the next three years. I began walking. 
+
+# Chapter 22.5: side story
+
+idk flashback and/or a scene from the estate.
+
+TK vol 1 end.  
