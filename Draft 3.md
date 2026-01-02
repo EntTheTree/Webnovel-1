@@ -1,129 +1,106 @@
 # Chapter 1: Reincarnation
 
-Standing there in front of the statue, I couldn’t help but glare at it. It was a gold-plated statue of a buddha. A master craftsman had probably sculpted it, declaring it his life’s work, getting praised by all the monks visiting. But all I felt as it stood there, towering over me, was irritation. Its expression seemed to be mocking me. A perfectly symmetrical smug smile. 
+Standing there in front of the statue, I couldn’t help but glare at it. A master craftsman had probably sculpted it, declaring it his life’s work. Praises rang often when other monks visited, but all I felt, all I could feel, was irritation. Tall. Blinding. Towering over me, its perfectly symmetrical smile seemed to be mocking me. It was a gold-plated statue of a buddha.
 
-I had been shot. Pressing down on the wound in my abdomen did little to stop the warm trail of blood sliding down my legs, staining the wooden floorboards in the process. The smell of incense invaded my nose, the same way the flashing red and blue lights invaded through the shuttered windows, painting away the darkness. 
+I had been shot. Pressing down on the wound in my abdomen did little to stop the warm trail of blood sliding down my legs. What a shame, the wooden floorboards would no doubt get stained after this. 
 
-The sirens were still blaring and occasional shouts could be heard surrounding this secluded temple. A familiar voice echoed through the night through the help of a megaphone.
+The smell of incense invaded my nose, the same way the flashing red and blue lights invaded through the shuttered windows. Sirens were still blaring and occasional shouts could be heard surrounding this secluded temple. A familiar voice echoed through the walls with the help of a loudspeaker. 
 
-“You are surrounded\! Come out with your hands up\!” 
+“You are surrounded\! Come out with your hands up\!” It was the detective that had been investigating me for the past few weeks.
 
-It was the detective that has been chasing me for the past few weeks. 
+The first time I met him, he asked me a bunch of questions. What my name was. Where my parents were, and why I was here. Not once did he write down my answers. He just stared at me. With that scarred left eye of his. 
 
-I had a nagging feeling of being watched and got my suspicions confirmed when he showed up at the temple. He had asked me a bunch of questions but not once did he write down my answers. He just stared at me. I stared back, at his peculiar scar over his left eye.
+In this bustling concrete jungle of a city stood a lonesome temple on the outskirts. Instead of tall glass skyscrapers that pierced the clouds and rows with cracked brick houses where you could smell the torn up plastic bags of trash littering the streets, nature surrounded the temple instead. Trees with leaves. Green grass. Air that didn’t smell sour. Having nowhere else to go, I eventually found myself standing before this very place.
 
-In this bustling concrete jungle of a city, stood a lonesome temple on the outskirts of top of a hill. Instead of skyscrapers surrounding it, trees and plants did instead. Having nowhere else to go, I eventually found myself standing before this very place. A monk sweeping the grounds had greeted me, introduced himself and then broke out into a long winded lesson, regaling the history of the temple. 
+A monk sweeping the grounds greeted me, introduced himself and then broke out into a long winded lesson regaling the history of the temple. Did I ask for this service? No. Did I ask him to stop? Of course not, what was the point? This happened more often than I would admit, someone finding me and blathering on and on about this or that. 
 
-Did I ask for this service? No. Did I ask him to stop? No, of course not. This happened more often than I would admit, someone finding me and blathering on and on about this or that. He looked increasingly more cheerful the more he talked, hitting all the bullet points. I must have been the only one that listened to his whole presentation.
+He looked increasingly more cheerful the more he talked, hitting all the bullet points. I must have been the only one that listened to his whole presentation. 
 
-Having learnt all the ins and outs of the temple, the monk invited me to have a meal as a reward. Having nothing but the shirt on my back, I accepted. Stuffing my face with food for the first time in a while, my body just wanted to lay down and sleep. Noticing this, the monk offered me a room to use, perhaps noticing my predicament. I, a young girl, had just wandered into a temple with nothing.
+Having learnt all the ins and outs of the temple, the monk invited me in to have a meal after taking a look at the dipping sky. With nothing but the shirt on my back, I accepted. Stuffing my face with food for the first time in a while, my body wanted to collapse into a coma. Noticing this, the monk offered me a room to use. 
 
-The room was intended for monks-in-training but no one had shed their modern life in recent years. The room had a mattress and that was it. It was bare. It was like looking into a mirror. I accepted the room.
+The room was intended for monks-in-training but since no one had shed their modern life in recent years, it lay unoccupied. A mattress on a low bedframe and a nightstand. That was it. I accepted the bare room.
 
-The monks at the temple were a little surprised when they saw that a new face had popped up overnight. They began chatting with me immediately, debating to each other about this or that while I stood there, watching. When I had opened my mouth and told them that I wasn’t a new monk in training, I expected them to be a little disappointed. They just smiled gently at me instead.
+Finding it surprising that a new face had popped up overnight, the residing monks began chatting with me immediately. Debates shot back and forth with me in the middle. I expected them to be a little disappointed when I finally told them that I wasn’t a new monk trainee. They just smiled gently at me instead. 
 
-There were two things stopping me from becoming a real monk-in-training. One, I couldn’t follow the base five precepts. I had already committed one of them. The other reason had something to do with this room, the room with the big statue.
+There were two things stopping me from becoming a real trainee. One, the five precepts that made the base of the religion. The other reason being this room, the room with the big buddha. It repulsed me. Strangely enough, as if a barrier had been lifted, I had no problems entering today. My bloody footprints painted a path across the wide floor.
 
-This was my first time in this room. I had tried to enter before but each time, as if some invisible barrier had formed, I couldn’t cross the boundary of the doorway. The golden statue acted like some talisman, protecting itself from me. But strangely enough, I had no problems entering today, my bloody footprints painting a path across the wide floor.
+Heavy footsteps came closer and closer and silhouettes obstructed the windows. I gazed at the blood-stained knife in my hand. Which way to die would be less painful: stab myself in the neck or get shot by those standing over there. 
 
-“Death is not the end, nor is life the start. We will all suffer while under the effect of the wheel of reincarnation.” A monk said to me one day. I didn’t really want to die but the thought of reincarnating again seemed to fill me with hope. Maybe I will be a cat in my next life? Laying about and sleeping whenever, or I could be a bird? Spreading out my wings and gliding through the open air. 
+“Death is not the end, nor is life the start. We will all suffer while under the wheel of reincarnation”, a monk said to me one day. I didn’t really want to die but the thought of reincarnating did fill me with a sense of hope. Maybe I could be a cat in my next life? Laying down and sleeping wherever and whenever. 
 
-The sounds of heavy footsteps came closer and closer and the silhouettes obstructed the windows. Glancing down at my blood-stained knife, I debated which way to die was less painful. Stabbing myself in the neck, or getting shot by those standing over there.
+My consciousness flickered in and out as I thought about other animals. There were too many to choose from. I just wanted to lie down. I just wanted to rest. I bled out. 
 
-My consciousness flickered in and out as I laid there in front of the statue. In the end, I couldn’t choose how I died. I just bled out with the glowing statue smiling down at me.
+The statue was still smiling. 
 
-\*\*\*
+“Detective, is this really her? The one making waves in the headlines lately?” The officer had to ask after seeing the dead body. He had a daughter about her age and all she did was chat with her friends about boys and idols, and stay up all night. 
 
-“Detective, is this really her? The one making waves in the headlines lately?”
+“Don’t let her appearance fool you, we already have three confirmed bodies.”
 
-The officer couldn’t help but ask after seeing the dead body of the girl. He had a daughter about her age. All she did was chat with her friends on the phone and staying up all night.  
+“You really can’t judge a book by its cover, huh?” The officer snapped a picture. “She must have been possessed or something, just look at this place. Gives me the creeps, I tell you.” 
 
-“Don’t let her appearance fool you, we already have three confirmed bodies”
+“Just take your pictures, and give me that report. The public and higher ups have been on my ass ever since that incident.” The detective gave the girl he shot a last look over.
 
-“Really? You really can’t judge a book by its cover. How did a girl like her turn into a ruthless killer?” The officer took a picture. “She must have been possessed or something, look at this place. The statues give me the creeps, I tell you” He rubbed his arms.
-
-“Enough chatting, wrap it up and give me that report. The media and higher ups have been on my ass ever since that incident.”
-
-“What a shame, he was about to retire and all…”
-
-“He had a promotion lined up and all…” The detective left to light a smoke.
-
-“Good riddance.” Draping a sheet of cloth over the girl, the officer began with his report.
+“Good riddance.” Draping a sheet of cloth over the girl, the officer wrote down something in his report.
 
 \*\*\*  
-My hands lit up as I injected the girl with my divine mana. It didn’t work.
+His hands lit up as he injected the girl with divine magic. It didn’t work.
 
-“Father\!” The mother looked distraught, “My daughter, she will wake up won’t she? She must be just sleeping, right?”
+“Father\!” The woman looked distraught. “My daughter, she will wake up again won’t she?” She must only be sleeping, right?” Having looked over this girl from late morning to late night, he could only come to one conclusion. Her daughter won’t be able to do what she wished for.
 
-Having looked over this girl from late morning to late night, I could only come to one conclusion. Her daughter won’t be able to open her eyes again.
+“I’m sorry, but there is nothing more I can do…” Divine magic was supposed to heal all except a few cases. Those cases being where the mind was involved or the patient was terminally ill. This girl was the latter case. “She doesn't have long…” 
 
-“I’m sorry… it’s not working…” Divine magic was supposed to heal all except for a few cases. Cases where the patient was going to die no matter what. I had expended all of mana.
+It was never easy telling a parent about the fate of their child. The mother wailed like a banshee as she held unto her dying daughter. No wonder his teacher said that crying at funerals made it harder for souls to leave. Even he froze at her cries.
 
-“She doesn't have long…” 
-
-It was never easy telling a parent about the fate of their child. The woman wailed as she held unto her dying daughter.
-
-“You should start the ritual”. The goddess had given us magic and rituals to help us live. The ritual would ensure a safe passage for a person’s soul on its destination to the pearly gates.
+“You should start the ritual.” It would ensure a safe passage for the poor girl’s soul on its way to the Goddess.
 
 “No\!” She cried. “I won’t do it\! She’s not dead\! My baby, open your eyes please\!”
 
-She grabbed my garment, pleading. “You can use healing magic can't you? Why isn’t it doing anything?\!”
+The mother grabbed at the priest’s garment. The white fabric stretched by her pleading hands. “You used divine magic didn’t you? Why isn’t it doing anything?\!” He stayed silent.
 
-I stayed silent.
-
-Even if divine magic couldn’t turn a terminal ill person into a healthy person, it should still have had some effect. But each time I tried to inject her with mana, it simply bounced off. She must already be dead.
+But it was strange. Even if divine magic would have no effect, some of the mana would nevertheless seep into the body. Each time he tried to inject her with mana, it simply bounced off. Ah, she was already dead.
 
 “Oh my baby, please open your eyes. What am I supposed to do without you\!”
 
-The plethora of plants and medicines sprawled across the room, seemed to tell about the girl’s long struggle against her body. Hearing what the mother said, I couldn’t imagine how it must have been living with an unknown incurable disease. Being bedridden whenever she walked too far, getting life endangering fevers for no reason, and not being able to retain her food. What a pitiful life this child has lived.
+The myriad plants and medicines sprawled all over the room, filling it with herbal notes, told a pitiful story about the girl’s long struggle against her body. Getting exhausted from merely taking a walk to town, getting a fever for forgetting to close the window, and not being able to stomach half of what she ate. This unknown disease was like a curse, but the priest found no such marks, much to the dismay of the mother.
 
-At least she seemed to be at peace laying there on the bed. A sharp contrast to the haggard looking mother, despair evident on her face. Her golden blonde hair laid to her sides. Her mother had combed it, holding onto whatever hope she had for her daughter. Probably expecting her to wake up any moment now. Apart from her hair, she also inherited the color of her eyes. The pair of brilliantly blue eyes reflected the light from the magic-powered lamp and stared at her mother. They could almost be mistaken for being sisters. Hmm? Staring?
+At least she looked to be at peace laying there on the bed, a sharp contrast to the haggard looking mother. Her golden blonde hair laid to her sides. Her mother had combed it, making it straight like strings of gold. Apart from her hair, she also inherited her rare purple eyes. The pair of them reflected the warm glow of the magic lamp as they stared at her mother. They could almost be mistaken for being sisters. Hmm? Staring?
 
-“What am I to tell your father\!” Her tears dropped onto the girl's cheek, leaving a trail as it plopped onto the pillow.
+“What am I to tell your father\!” Her tears fell on the girl’s cheek, leaving a wet trail as it plopped down on the pillow. The girl’s eyes twitched.
 
 “What…”
 
-Flinching from the unexpected sound, her tears stopped in their tracks. 
+Flinching from the unexpected sound, her tears stopped immediately in their tracks like a frozen faucet. How is that possible? 
 
-What? How is this possible?
+“Oh my Goddess\!” She let out a yell full of joy. “My baby\!”
 
-“Oh my goddess\!” She let out a yell full of joy. “My baby\!”
-
-“A miracle… This must be a miracle…” I have just witnessed a real miracle. I must document this.
-
-I rummaged through my bags to find something to write on, and while the mother hugged her child shedding tears of joy, the words from the little girl stopped us both from moving.
+It was a miracle. The priest had never witnessed one in front of his eyes but he understood. “This must be a miracle…” He had to document this. Rummaging through his bags to find something to write down this act of the divine, and while the mother hugged her revived daughter shedding tears of joy, the words from the little girl stopped the two of them from moving.
 
 “Who are you?” A hoarse voice called out.
 
-\*\*\*
+\*\*\*  
+The first thing I saw when I opened my eyes was a crying woman. An angel? Her appearance seemed to fit the description with her over the top blonde hair and ridiculous purple eyes. Not only that, that man over there wearing a white priest costume held what must have been a list of my deeds. Haa… I just wanted to rest, I’d rather be actually dead than hearing more of her wails. It was irritating. 
 
-The first thing I saw when I opened my eyes was a beautiful crying woman. An angel? That can’t be. I can’t be in heaven. The woman seemed to be shocked about something. Her expression mirrored the expression of the man next to her, who wore some really gaudy white clothes reminiscent of the priests that had visited the temple. 
+The second thing I saw was my body. Glancing downwards the view shocked me. This wasn’t my body. When I thought of moving my hand, a small childlike hand moved accordingly instead. Hair in the shade of that woman filled the sides of my vision and my chest had gotten a bit smaller…
 
-Didn’t I die? Glancing downwards the view shocked me. This wasn’t my body. When I thought of moving my hand, a small childlike hand moved accordingly instead. An unnatural gold-colored hair flowed brightly down my face and my chest had gotten a bit smaller… 
+A dream. It didn’t make sense for me to be in heaven anyway. But my aching body hurt too much for me to really believe that. Every muscle in ‘my’ body writhed and every nerve felt like burning as I laid there in bed. The pain was even worse than being shot. 
 
-This had to be a dream, but my body ached too much for me to really believe that. Everything hurt as I laid there in the bed. The pain was even worse than being shot.
+“Who are you?” Wow, even my voice was different.
 
-With all the strength I could muster, I focused on the woman. “Who are you?” Wow, even my voice was different. 
+There was a bowl of porridge in my hands. The warmth from it seeped through my hands, heating up my body a little. Its grayish color didn’t exactly whet my appetite, however the gaze from that annoying woman ordered me to try a taste. *One shouldn’t judge a book by its cover,* I remembered hearing someone say. A subtle sweetness enveloped my tongue as the runny porridge spread throughout my mouth and down my sore throat.
 
-I stared absentmindedly at the bowl of porridge in my hands. The warmth from it seeped through my hands, heating up my body a little. Its grayish color didn’t exactly whet my appetite but as the floating spoon flew toward my mouth I had to open it.
-
-*One shouldn’t judge a book by its cover,* I remembered hearing someone say. A subtle sweetness enveloped my tongue as the porridge spread through my mouth and down my throat, warming it up.
-
-The woman looked at me with crescent moon shaped eyes. “How is it?” 
+The woman looked at me with crescent moon shaped eyes. “How is it?” Everything about her made me infuriated. A clear voice, a gentle smile, an appearance that could only be seen on television. And the best of it all, this woman was supposedly my mother. 
 
 I opened my mouth. “It’s good.” And a childlike voice rang out. “What is it?” 
 
-“I’m glad”, she said with a big smile. “It’s oat porridge, I used to make it whenever you would get sick”. I accepted another spoonful from her.
+“I’m glad”, she said with a big smile. “It’s oat porridge, I used to make it whenever you would get sick.”
 
-This woman was supposedly my mother. A pretty person with golden hair, the same hue as mine, and blue eyes reminiscent of a cloudless blue sky. Her youthful appearance would make one wonder if she actually was a mother, her age didn’t show at all.
+According to this woman, Victoria, my name was Esther, thirteen years old. The priest said that it was a miracle that I opened my eyes again. A person that rejected divine magic was a sure sign of death after all.
 
-According to this woman, Victoria, my name was Esther, 13 years old. I had been struggling with illnesses my whole life but it was especially bad this time, even putting me on the edge of death. The priest had said that it was a miracle as a person rejecting healing magic was a sure sign of death. He had no answers as to why I didn’t have any memories, much to Victoria’s chagrin.
+Divine magic. Magic. All of it sounded stupid. I wasn’t some little girl, nor did I have such a lovingly sick mother. I was shot and I died. The end. I didn’t even have the energy to glare at that woman’s gleeful expression at the empty bowl of porridge.
 
-Healing magic. Magic. I didn’t really know what to expect anymore, however I knew for a fact by instinct, that the one that was supposed to be in this body, Esther, was dead. I didn’t feel the need to tell them that. Victoria looked gleefully at the now empty bowl of porridge. 
+A day has passed since I’ve taken over Esther’s body. My body still hurts all over but speaking has become less of a strain, resulting in me passing the time by asking a bunch of questions to the now dry Victoria.
 
-A day has passed since I’ve taken over Esther’s body. My body still hurts all over but speaking has become less of a strain, resulting in me passing the time by asking a bunch of questions to Victoria.
-
-This country was called the Guillain Kingdom and it was currently year 563 of the common calendar. We lived in some town ruled by some baron whose name I couldn’t remember. This was totally different from the earth I knew.
+This country was called the Guillain Kingdom and it was currently year 563 of the common calendar. We lived in some town ruled by some a noble with the rank of baron whose name I couldn’t remember. This was totally different from the earth I knew.
 
 “A planet? Is it some kind of plant?” She was sitting on a chair by my bedside. 
 
@@ -131,26 +108,26 @@ This country was called the Guillain Kingdom and it was currently year 563 of th
 
 Her eyes were filled with hope. “Really? Do you remember anything else?”
 
-“No, sorry…” 
+“No, sorry.” 
 
-“Oh, it’s nothing to be sorry about sweetie, lets just take it slow”
+“Oh, it’s nothing to be sorry about sweetie, let's just take it slow.”
 
-She put her hand onto my head and began patting me. It felt oddly comforting. 
+She put her hand onto my head and began patting me. It itched.
 
-“M-mom?” The word got stuck in my throat. “Can I ask another question?”
+“Can I ask another question?”
 
-“Of course\!” She pumped her fists, cheering me on.
+“Of course\!” She pumped her fists and cheered me on in an overly cute manner.
 
 “Do I have a father?”
 
-“Oh…” She looked like a wilted flower. It was kind of amazing how fast she flipped between her emotions.
+“Oh…” Like a wilted flower, she hung her head. It was kind of amazing how fast she flipped between her emotions. 
 
 “He is currently out hunting monsters.”
 
 “Hunting monsters? That sounds dangerous.” I imagined monsters like big snakes and dragons and… I didn’t know any more monsters. 
 
 “They can be…” She looked out the window. “But don’t you worry a bit my little pumpkin, your father is stronger than he looks\! Why do you think I married him?”  
-She began singing his praises. I could tell from the way she spoke that they were happily married. I searched through my memories for something involving my father but quickly stopped. It was a stupid idea. 
+She began singing his praises. I could tell from the way she spoke that they were happily married. I searched through my memories for something involving my own father but quickly stopped. It was a stupid idea. 
 
 “Do you think he will be glad to see me?”
 
@@ -160,121 +137,107 @@ She began singing his praises. I could tell from the way she spoke that they wer
 
 “It doesn’t matter if you remember us or not, just know that we will love you all the same. There is always time for new memories, and who knows? Maybe your memories will come back after a good night’s sleep? You can see your father tomorrow too.”
 
-I could feel the warmth in her words as she swaddled me. It warmed up my body, however a twinge of guilt took root in my heart, where her body warmth had managed to seep into. I didn’t want to let go of this warmth. 
+I could feel the warmth in her words as she swaddled me. It warmed up my body and even managed to reach my heart. I hated it. I stared into her brilliant purple eyes. Why couldn’t I have stayed dead.
 
 # Chapter 2: Parents
 
-I could hear the front door open downstairs as someone entered the house. My mother was talking to someone with a manly voice before a barrage of footsteps sprinted up the stairs.
+I heard the front door open downstairs as someone entered the house. Victoria was talking to someone with a manly voice before a barrage of footsteps sprinted up the stairs.
 
-“Esther\!” A man barged into the room. The first thing I noticed were his clothes. Leather armor outfitted with metal plates and clinking on his belt was a genuine sword.
+“Esther\!” A man barged into the room. The first thing I noticed were his clothes. Leather armor outfitted with metal plates and clinking on his belt was what appeared to be a genuine sword.
 
 “Oh, I shouldn’t have left you\!” He held my hand, pressing it against his head as he knelt by the bed. I could smell something familiar coming from him. It was a smell I knew all too well; the smell of blood.
 
 “You must be my father.”
 
-“Oh my Goddess it was true\!” His eyebrows scrunched together as he seemed ready to cry. Not expecting him to answer, I looked toward my mother for the answer. She had entered the room after him and was consoling her husband. 
+“Oh my Goddess it was true\!” His eyebrows scrunched together as he seemed ready to cry. Not expecting him to answer, I looked toward my Victoria for the answer. She had entered the room after him and was consoling her husband. 
 
 “Say hello to your father, dear.” 
 
-He was a handsome man. His sharp jawline was devoid of hair and his obsidian eyes were looking at me warmly under his jet-black hair. Sweat had come together making small streams running down his face. His broad shoulders covered by the armor looked to be from the result of rigorous training. The same could be said for the other muscle parts. My mother must be a great fisherwoman.
+He was a handsome man. His sharp jawline was devoid of hair and his obsidian eyes were looking at me warmly under his jet-black hair. Sweat had come together making small streams running down his face. His broad shoulders covered by the armor looked to be from the result of rigorous training. The same could be said for the other muscle parts. 
 
-My mother explained to him how after he left for the three-day hunt, she had to call over a priest to heal my sudden illness. My body had rejected the healing magic, but she had still held onto hope, until the priest suggested she prepare for a ritual intended for the dying. And then I opened my eyes. 
+Victoria explained to him how after he left for the three-day hunt, she had to call over a priest to heal my body. Holding onto her small sliver of hope, it was ruthlessly crushed when he suggested she prepare the ritual intended for the dead. This all happened before I opened my eyes.
 
-“I knew those people were quacks\!” My father bellowed.
+“I knew those people were quacks\!” Gale bellowed.
 
 “Watch what you are saying\!” 
 
-“Why else would healing magic not work\! They must have sent some unqualified dolt\!” He looked just like one of those demon paintings the temple liked to hang up. I never understood why they hung them up.
+“Why else would healing magic not work\! They must have sent some unqualified dolt\!” He looked just like one of those demon paintings the temple had on its walls. I never understood why they hung them up.
 
 “I don’t know either, but please calm down.” She pleaded with him. It was only then that he noticed the situation. Messy armor stained with blood, dirty sweat covering his face, and he stank. He took a moment to collect himself. “So she doesn’t remember anything?”
 
-“I think so, she even asked who I was…” Victoria broke out into a sob. 
+“I think so, she even asked who I was…” Victoria broke out into a sob, again.
 
 “Oh honey, come here. I didn’t mean to make you cry.” Now it was the wife’s turn to be consoled.
 
-I watched them silently, not even a thought came to mind, still I felt my heart sink. Esther, are you watching? How am I supposed to act in this situation?
+I watched them silently, as if watching a show or a play. Because that was what it felt like. A mother that tried her best for her sick daughter, and a father that came home concerned for that very same daughter. I had to suppress my laughter lest they find out that I wasn’t really their daughter.
 
-A new day welcomed me as the rays of sun lit up the room and woke me up. A pleasant smell of plants filled the room. My mother had fallen asleep while taking care of me again. She looked exhausted, although the smile on her sleeping face indicated otherwise. Sitting there under the light, the dust being lit by the light looked like stars dancing around her. I better get better soon.
+A new day welcomed me as the rays of sun lit up the room and woke me up. A pleasant smell of plants filled the room. Victoria  had fallen asleep while taking care of me for the umpteenth day. She looked exhausted with her raised shoulders, although the smile on her sleeping face indicated otherwise. Sitting there under the light, the dust being lit looked like stars dancing around her. She really looked like an angel.
 
-From the conversations I could hear the last few days, the main topic seemed to be about money. The priest had refused payment, stating that he couldn’t accept payment for something the Goddess herself did. My illnesses had been slowly but surely emptying our funds and Gale, my father, had even started to do odd jobs here and there.
+The body felt particularly well today so I decided to snoop around the house a bit. Sneaking past her, I went out of the room carefully, making sure not to wake her up. The first thing I wanted to see was a mirror. I still hadn’t seen myself. My parent’s bedroom that I have been using since I woke up didn’t have one. 
 
-The body felt particularly well today and I decided to snoop around the house a bit. Sneaking past my mother, I went out of the room carefully, making sure not to wake her up. The first thing I wanted to see was a mirror. I still hadn’t seen myself. It was most likely to find a mirror in Esther’s room, I figured. My parent’s bedroom that I have been using since I woke up didn’t have one.
+Opening the closest door, a cozy small room greeted me. A bed, half the size of the one I’ve been using, sat against the wall. A desk with a matching chair was placed under a window pointing towards the forest in the distance. The trees were even greener than the ones at the temple. 
 
-Opening the door, a cozy small room greeted me. A bed, half the size of the one I’ve been using, sat against the wall. A desk with a matching chair was placed under a window pointing towards the forest in the distance. The trees seemed even greener than the ones at the temple. 
+I searched around the room for a mirror but found only some books placed haphazardly on the desk. They were all about plants and their medicinal properties. It was interesting how although I had never seen the type of script used in the books before, I could still understand the writing. Was this the effect of magic? It was cool enough. 
 
-I searched around the room and for a mirror but found only some books placed haphazardly on the desk. They were all about plants and their medicinal properties. It was interesting how although I had never seen the type of script used in the books before, I could still understand the writing. Was this also magic? I closed the books.  
+A trail of sweat began painting my back and my legs wobbled a bit by the time I survived the journey back to bed. The small distance between the rooms seemed to stretch indefinitely as I waddled one foot after the other. Victoria had woken up from the noise and stretched her arms in the air like a cat. 
 
-My body began sweating and my legs wobbled a bit as I left Esther’s room. The small distance between my parent’s room and Esther’s seemed to stretch indefinitely as I waddled back to bed. I somehow managed to make it back.
+“Good morning, sweetie. Did you sleep well?” At least her smiling face was more pleasant than her crying one. I nodded. “It smells like your father is cooking something delicious.” A mouth-watering aroma had filled the house and distracted me while I was snooping. Victoria gave me headpats again. It was warm. “Oh dear, do you have a fever again? You are sweating so much\!”
 
-Victoria had woken up from the noise and stretched her arms in the air like a cat. 
-
-“Good morning, sweetie. Did you sleep well?” I liked seeing her smile rather than crying. 
-
-I nodded.
-
-“It smells like your father is cooking something delicious.” A mouth-watering aroma had filled the house while I was snooping. Victoria gave me headpats again. It felt nice. 
-
-“Oh dear, you are sweating so much\!”. 
-
-Reflected in the puddle was a face resembling Victoria staring absentmindedly at me. I looked just like a smaller version of her, a small angel. I tried to emulate her smile. It looked weird even in this prettier body.
+Reflected in the muddy puddle was a face resembling Victoria staring absentmindedly at me. It looked like a smaller version of her, a small angel. I tried to emulate her smile but had to stop. Even my smile looked weird in this prettier body.
 
 My body had gotten much better the past week with all the rest and food. Today I finally got permission to venture outside of the house. Yesterday’s rain had soaked the garden behind the house, covering every blade of grass with water droplets. 
 
 “Esther\!” Victoria was calling from the kitchen window, “Want to give me a hand with breakfast?”
 
-“Coming\!”
+“Coming\!” Standing up too fast got me a bit lightheaded, a feeling which had become far too familiar.
 
-Standing up too fast got me a bit lightheaded, a feeling which had become far too familiar.
+Yesterday, Victoria suggested I help her with preparing dinner, giving me some vegetables to play with. All I ever did was sleep and read the few books available in the house, even beginning to re-read some of them. I accepted her suggestion readily.
 
-Yesterday, my mother suggested I help her with cooking, giving me some vegetables to cut. All I ever did was lie in bed and read the few books available in the house, even beginning to re-read some of them. I accepted her suggestion readily.
+The kitchen had some interesting things. A stone that, literally, made water appear. A stone that summoned a controllable fire, making cooking easier than using a gas stove top. I had almost burnt down the temple kitchen when I tried to cook something there for the first time. They were aptly called magic stones.
 
-The kitchen had some interesting things. A stone that magically, literally, made water appear. A stone that summoned a controllable fire, making cooking easier than using gas stove tops. I had almost burnt down the temple kitchen when I tried to cook something there for the first time.
-
-“Here cut these carrots into cubes, do you need me to show you how?” It seemed she had gotten used to my amnesia, often asking me whether I knew something or not.
+“Do you need me to show you how to cut them into cubes?” She always asked me whether I knew something or not. 
 
 “I think I got it.”
 
 It had been a while since I last held a knife. Folding each of my fingers around the handle. My hand wasn’t the same size as before but I could still feel the weight of the knife. I gave it a few flips, it was a terrible knife.
 
-“Is it too heavy?” My mother asked. 
+It had been a while since I last held a knife. Why, I didn’t think I would ever hold one again. Folding each of my fingers around the handle, an emotion began to rise up in me. This hand was smaller than before but I could still feel the weight distribution and overall feeling of it. Flipping it over a few times, I came to the conclusion that it was a terrible knife. It felt upsetting.
 
-“No, it’s fine” It was not fine. The balance of the knife was out of whack, making one need to use more energy than necessary. Not to mention the dull and nicked blade edge, catching the morning light as I inspected it.
+“Is it too heavy?” Victoria asked. 
 
-Despite my inner complaints, I still made quick work on the carrots, cutting them into suitable pieces. The monks at the temple had made me help out in the kitchen. I had originally to make something to give back to the monks, and seeing my knifework, asked me to help in the kitchen whenever I had time. I had a lot of time.
+“No, it’s fine” It was not fine. The balance of the knife was out of whack, making one need to use more energy than necessary. Not to mention the dull and nicked blade edge, catching the morning light like a shattered glass as I inspected it.
 
-“Did you get better at cutting vegetables?” Oh, I got carried away.
+Despite my inner complaints, I still made quick work on the carrots, cutting them into suitable pieces. Helping the monks in the temple prepare dinner was routine. I had originally wanted to make something to give back to the monks, and seeing my knifework, they asked me to help in the kitchen whenever I had time. I had a lot of time.
 
-“You must have gotten it from me, my daughter is so talented\!” Victoria gushed and gave me a squeeze.
+“Did you get better at cutting vegetables?” Oh, I got carried away. “You must have gotten it from me, my daughter is so talented\!” Victoria gushed and gave me a squeeze.
 
 “Mom, I’m holding a knife.” Mom, mom, mom. I don’t think I will ever get comfortable saying that three-letter word.
 
-“Sorry, sorry, you’re just so lovely\!”
-
-“Are these stars?” Victoria studied one of my pieces. “Pretty cute…”
+“Sorry, sorry, you’re just so lovely\! Are these stars?” Victoria studied one of my pieces. “Pretty cute…”
 
 “I think they taste better as stars.” I placed the knife down, making sure the tip pointed away from us.
 
 “Hmm.” She didn’t agree? “Come here\!” 
 
-A full on hugging attack. “How is my daughter this cute\!” I didn’t really understand Victoria sometimes. Nonetheless, whenever she hugged me with her warm arms I couldn't help but feel a bit happier. 
+A full on hugging attack. “How is my daughter this cute\!” I didn’t really like Victoria. Nonetheless, whenever she hugged me with her warm arms, my heart ached. Whether it ached in a good way or a bad way required a few more hugs to know.
 
 Setting the table for three, Gale came down the stairs groggily.
 
 “What’s for breakfast today?” He asked, slumbering toward his seat at the end.
 
-“Vegetable stew and fried potatoes”. We were now all seated. “Phew, you better wash up afterwards. I can practically smell the alcohol coming from you, how many did you have yesterday”
+“Vegetable stew and fried potatoes.” We were now all seated. “Phew, you better wash up afterwards. I can practically smell the alcohol coming from you, how much did you have yesterday?”
 
 “I didn’t even get to take a sip, some guy spilled his whole cup all over me”. He took a spoonful of the stew. “Wow, is it just me or did your cooking get better lately?”
 
-“It’s a secret ingredient I added lately.” My mother smirked mischievously. 
+“It’s a secret ingredient I added recently.” She smirked mischievously. 
 
-He inhaled the bowl of stew. “Poison is it?”
+“Poison is it?”
 
 “What nonsense\! Why would I poison the same food as Esther and I are eating.”
 
 “She didn’t deny it…” Gale murmured to me.
 
-“What you are tasting is the sweat and efforts of our daughter. She has helped me out in the kitchen lately.
+“What you are tasting is the sweat and efforts of our daughter. She has helped me out in the kitchen lately.”
 
 “Really? She did feel more mature lately, but to think my child is now all grown up…” Fake-wiping his fake tears, he gave me a few pats. 
 
@@ -284,11 +247,9 @@ He inhaled the bowl of stew. “Poison is it?”
 
 “She really did go and grow up…” Gale slumped his shoulders. “How about this?” Rummaging through his pockets, he pulled out a silver coin. 
 
-“Isn’t a silver coin a bit much, honey? You could buy a day’s worth of food with that”
+“Isn’t a silver coin a bit much, honey? You could buy a day’s worth of food with that.”
 
-“This is nothing, wait until you see this.” Leaving the table, he came back with a book in hand.
-
-“I heard you were interested in monsters.” It was a monster lexicon.
+“This is nothing, wait until you see this.” Leaving the table, he came back with a book in hand. “I heard you were interested in monsters.” It was a monster lexicon.
 
 “Whoah.” I could finally see what the monsters looked like.
 
@@ -296,11 +257,11 @@ He inhaled the bowl of stew. “Poison is it?”
 
 “Where do you keep finding these books? Aren’t they expensive?”
 
-“Don’t worry, I got this for less than that silver coin”
+“Don’t worry, I got this for less than that silver coin.”
 
-Flipping through a few pages, I understood why my mother didn’t worry too much about her husband going out and slaying monsters. Each page had a picture and a description of a monster. A rabbit with antlers, a deer with four eyes and other animals with an assortment of features either added or subtracted. Well, I guess you could call these weird animals monsters.
+Flipping through a few pages, I understood why she didn’t worry too much about her husband going out and slaying monsters. Each page had a picture and a description of a monster. A rabbit with antlers, a deer with four eyes and other animals with an assortment of features either added or subtracted. Well, I guess you could call these weird animals monsters.
 
-“Speaking of, you know the people I met yesterday? We are currently figuring out the last details about a really good job. A lot of money is sure to be paid out.
+“Speaking of, you know the people I met yesterday? We are currently figuring out the last details about a really good job. A lot of money is sure to be paid out.”
 
 “Really? Who are they?”
 
@@ -308,9 +269,9 @@ He explained how some fancy people from out of town had come here to find someth
 
 “We won’t have to worry about money for a while if my gut instinct is correct\!”
 
-“This sounds too good to be true”, my mother seemed suspicious, “I’ve never heard of guarding duty being well paid”
+“This sounds too good to be true, I’ve never heard of guarding duty being well paid.”
 
-“Well, by the way she was acting, it seemed like the leader was a noble. *I* would know.”
+“Well, by the way she was acting, it looked like the leader was a noble. *I* would know.”
 
 “That makes sense…”
 
@@ -322,9 +283,9 @@ I guess nobles splurged more money than necessary, they sound rich. Anyway, how 
 
 I was currently standing in front of a toady looking street vendor selling meat skewers. The smell of the skewers had enchanted me, making me arrive at this place. It had been a while since I’ve eaten grilled meat.
 
-“Go ask your parents if you’ve got no money”
+“Go ask your parents if you’ve got no money.”
 
-“How much for a skewer?” My mother had given me a coin pouch to safely carry the silver coin. It was hand-sewed and the name, Esther, was embroidered on it. 
+“How much for a skewer?” That woman had given me a coin pouch to safely carry the silver coin. It was hand-made and the name, Esther, was embroidered on it. 
 
 “Five coppers for one, kid.” 
 
@@ -332,85 +293,81 @@ I was about to open my pouch when I saw something glistening in front of the toa
 
 “Sorry, could you repeat that?”
 
-“A kid your age already losing their hearing? I said five, coppers.” A golden circle was hovering in front of the man’s mouth, appearing as if to cover it. The golden circle appeared each time he told me the price.
+“A kid your age already losing their hearing? I said five, coppers.” A golden circle was hovering in front of the man’s mouth, appearing as if to cover it. 
 
 “What about this one?” I pointed to a skewer with only vegetables.
 
-“Four coppers, scram if you’re not going to buy anything.” It appeared again when he said four. Only I seemed to see it.
+“Three coppers, scram if you’re not going to buy anything.” It appeared again when he said three. Didn’t he see the thing?
 
 “Are you lying about the price?”
 
-The vendor paused for a second. “Lying about the price? Who decided that?”
+The toad crossed his arms. “Lying about the price? Who decided that?”
 
-“Do you want me to buy you one sweetie?” My mother had arrived.
+“Do you want me to buy you one sweetie?” She had arrived. “How much for a skewer?”
 
-“How much for a skewer?”
+“That’ll be three coppers.” 
 
-“That’ll be three coppers for one.” 
+My eyebrows scrunched together as I held the meat skewer in my hand. Did the golden thingy really detect that he was lying? And like he said, who was the one deciding that? The Goddess that kept being mentioned? Did this make me a mage? This was all too confusing. 
 
-I felt my eyebrows scrunch together as I held the skewer in my hand. Did the toady vendor really lie? Like he said, who decided what was a lie? The golden circle had to be some form of magic. This was too confusing.
-
-Taking my first bite of the skewer filled me with amazement. A bit gamey, but that  only added to the charm. The temple didn’t have that much meat to eat and this tasted different from the dishes Victoria made. 
+Taking a bite of the skewer filled my head with more tasteful thoughts. It was amazing. A rich umami that could only come from natural coals meeting fatty meat. It wasn’t too rich either with the help of the green bits of herbs covering it. A bit gamey maybe, but that only added to the charm. The temple didn’t have that much meat to eat and this tasted different from the liquid-based dishes Victoria made for me.
 
 “Is this meat from the four-eyed deer monster?” I asked her
 
 “You can’t really eat monsters, sweetie.”
 
-“Why not?” I took another cube of meat  into my mouth.
+“Why not?” I took another cube of meat into my mouth.
 
-“Monsters were poisoned by the goddess to make it so we wouldn't needlessly hunt them.”
+“Monsters were poisoned by the Goddess to make it so we wouldn't needlessly hunt them.”
 
-“Really?” I put the last cube in my mouth. “Wouldn’t it be better to hunt them for food?”
+“Really?” I put the last cube in my mouth. “Wouldn’t it be better to hunt them for food? Why did she do that?” Maybe they would taste four times as good as this.
 
-“Who knows? Maybe we can ask one of the priests at the church.”
+“Are you interested in the Goddess? Maybe we can ask someone in church about it”TK
 
 She went on to explain that the church in town was the place to ask about the goddess, the divine or anything monster related. A church didn’t sound like a place where I would be comfortable at. It’s a wonder how I managed to even stay at a temple.
 
-With two empty skewers in one hand, and my mother’s hand in the other, I accompanied her wherever she led me. The sight of the town was quite something. It looked just like a medieval city. Cobblestones laid on our path and carriages with horses could be seen going up and down the streets, clipping and clopping all the while. Passing a bunch of people, we arrived in front of a shop.
+With an empty skewer in one hand, and Victoria’s hand in the other, I accompanied her wherever she led me. The sight of the town was quite something. It looked just like a medieval city. Cobblestones laid on our path and carriages with horses could be seen going up and down the streets, clipping and clopping all the while. Passing a bunch of people, we arrived in front of a shop.
 
-The town was pretty developed for being a town on the outskirts, Gale said. There was a social class system used in the Kingdom where the aristocracy held more power than the commoners. At the top of the social pyramid stood the King, he could have ruled the kingdom with an iron fist doing whatever he wanted, hadn't it been for the nobles. The highest ranking nobles were the three dukes who, with the help of several different aristocratic factions, held the king and each other in check. Gale had let out a huge sigh when he had explained.
+The town was pretty developed for being a town on the outskirts, Gale said. There was a social class system used in the Kingdom where the aristocracy held more power than the commoners. Not that different from my old life then, where the rich did whatever they wanted. 
 
 The noble ruling over this town was Baron Barre, which was also the name of the town. Barre of the Guillain Kingdom. It rolled nicely off the tongue. Gale didn’t seem that happy when talking about him.
 
-“Why don’t you wait on the bench here?” She pointed to a bench set outside the store, shaded by a big leafy tree.
+“Why don’t you wait on the bench here?” It sat outside the store, shaded by a big leafy tree. My legs had begun to ache so it was a welcome offer. 
 
-My legs had begun to ache so it was a welcome offer. Sitting on the bench and watching the people walking past me was entertaining enough. There were some guards walking around with spears in their hand patrolling the area, people who were haggling with vendors trying to get the most for their money, I should try doing that next time. Yet what had been the most entertaining was the striking hair colors of the people in this town. Red, blue, green, a bunch of colors littered the heads of the passerbys. Speaking of, a boy with red hair had appeared in front of me.
+Sitting on the bench and watching the people walking past me was entertaining enough. There were some guards walking around with spears in their hand patrolling the area, people who were haggling with vendors trying to get the most for their money. I should try doing that next time. 
+
+Yet what had been the most entertaining was the striking hair colors of the people in this town. Red, blue, green, a bunch of colors littered the heads of the passerbys. Speaking of, a boy with red hair had appeared in front of me.
 
 “What’s a young lady like you doing here? Never seen you here before.”
 
-A young lady, wasn’t that usually used when talking to nobles? Well I did wear a rather pretty dress and fancy sunhat. Victoria had given me one of hers to protect me from the scorching summer sun. Anyway, who is he?
+A young lady, wasn’t that usually used when talking to nobles? Well I did wear a rather pretty dress and fancy sunhat. Victoria had given me one of hers to protect me from the scorching summer sun. 
 
-The boy had a tall frame with tanned skin, evidence of him having played outside a lot. He still had some boyness to him as his face didn’t look like a man yet. His green eyes stared at me and his unkempt red hair looked like a hedgehog I had seen once.
+The boy had a tall frame with sun-kissed skin, evidence of him playing outside a lot. He still had some boyness to him as his face was rounder than it was sharp. His unnatural green eyes stared at me and his red hair looked like a hedgehog I saw once. Anyway, who is he?
 
-“I’m not a young lady, my name is Esther. I’ve never seen you before either”
+“I’m not a young lady, my name is Esther. I’ve never seen you before either.”
 
-“Is that so? I’m Eric, I live in that house over there”, he said, pointing at the house next to the shop. “I’m 14”
+“Is that so? I’m Eric, I live in that house over there”, he said, pointing at the house next to the shop. “I’m fourteen.”
 
-Is this how you are supposed to introduce yourself?
+Is that how you are supposed to introduce yourself?
 
-“I live outside town, I’m 13”
+“I live outside town, I’m thirteen”
 
-He smirked. “Looks like I’m older than you”
+He smirked. “I’m older than you then. Are you lost or something?” 
 
-“Are you lost or something?” 
+“I’m waiting for my mother.”
 
-“I’m waiting for my mom.”
-
-“That sounds boring.” The boy took a seat beside me as if it was natural, plopping himself down. He was a whole head higher than me.
-
-“Yeah this is boring, wanna go play instead?” It hadn’t even been a full minute before he said something. 
+“That sounds boring.” The boy took a seat beside me as if it was natural, plopping himself down. He was a whole head higher than me. “Yeah this is boring, wanna go play instead?” It hadn’t even been a full minute before he complained.
 
 “My mother said to not go with strangers.” 
 
-Victoria didn’t tell me this but the point still stands, I think. *She* didn't really exude a sense of confidence. Besides, playing? That did sound fun.
+Victoria didn’t tell me this but the point still stands, I think. *She* didn't really exude a sense of confidence. Besides, playing? That sounded far too childish.
 
 “I’m not a stranger, I know your name and you know mine. Oh I know.” He rummaged through his bag, eventually pulling something wrapped in paper.
 
-“My dad told me to give a gift to someone to make them your friend. Here take one”
+“My dad told me to give a gift to someone to make them your friend. Here take one.” It was candy. 
 
-It was hard-candy. I hadn’t had sugar in a while, it was supposed to be pretty rare so how did this kid get some? Not passing up this opportunity, I unwrapped one and popped it into my mouth. My mouth felt like it was burning as the sweetness enveloped my mouth. 
+I hadn’t had real sugar in a while, it was supposed to be pretty rare so how did this kid get some? Not one to pass up this opportunity, I unwrapped one and popped it into my mouth. It exploded. The sweetness ran across my tongue like a galloping horse as it rammed against my senses. My cheeks scrunched up from the shock and it felt like my mouth was burning while it tried to secrete more saliva.
 
-He smiled. “There, we’re now friends”
+“There, we’re now friends.” He smiled. 
 
 “Is that how that works?” I snuck another piece into my mouth.
 
@@ -418,49 +375,45 @@ He smiled. “There, we’re now friends”
 
 “Don’t click your tongue at me…”
 
-“Who’s this, Esther? A new friend?” My mother was finished with her shopping.
+“Who’s this, Esther? A new friend?” Victoria was finished with her shopping.
 
-“Yeah, he gave me some candy".
+“Yeah, he gave me some candy."
 
-“Did he now? Well thank you for that”. Victoria gave him a smile.
+“Did he now? Well thank you for that.” Victoria smiled at him.
 
-“O-oh it was no problem, my lady. My name is Eric. I live over there”. He was already on his feet, his face turning red like his hair.
+“O-oh it was no problem, my lady. My name is Eric. I live over there”. He shot to his feet, his face turning red like his hair.
 
-“Oh my\! My lady?” She looked happy.
+“Oh my\! My lady?”
 
 He had a dumb expression on his face. “Mom, can I go play with Eric for a bit?”
 
-“Hmm” She turned to look at the guards. “Make sure to meet us by the fountain on the next bell, okay? Eric, can I offer you this mission?”
+“Hmm.” She turned to look at the guards. “Make sure to meet us by the fountain on the next bell, okay? Eric, can I offer you this mission?”
 
 “Of course\!”
 
 “Eric, let's go.”
 
-“Huh? Oh, sure”
+“Huh? Oh, sure.” Eric followed me after giving my mother a farewell. I saw that she was waving at us when I turned around. My cheeks filled with air as I walked a little faster. 
 
-Eric went after me after giving my mother a farewell. I saw that she was waving at us when I turned around. My cheeks filled with air as I walked a little bit faster. 
-
-“Hey where are you going, that’s the wrong way”
+“Hey where are you going, that’s the wrong way.”
 
 “Really? I don’t even know where I am going.”
 
-“Weirdo.” Eric gave me a funny look. “This way. All the kids play over there.”
+“Weirdo.” Eric raised his eyebrows at me. “This way. All the kids are playing over there.”
 
-Snaking around some alleys and streets, we arrived into a clearing, where a group of kids were chatting and running around.
+Snaking around some alleys and streets, we arrived into a clearing free of buildings and trees. Children’s laughter filled the air as they ran around and chatted together. 
 
-“Hey guys\! A brought another one to play with”
+“Hey guys\! A brought another one to play with.”
 
-“Eric\!” a girl in shorts came running up to us. “I told you to stop bringing over random kids\!”, she said grumpily.
+“Eric\!” A girl in shorts came running up to us. “I told you to stop bringing over random kids\!” She said grumpily.
 
 “She’s not some random kid, I befriended her with some candy. Isn’t that fine? She looked pretty bored so I took her along.” Rubbing his nose, it looked like he thought he did something heroic. I wasn’t actually bored.
 
-“That’s not the correct way to befriend someone\!” She sounded exasperated. 
+“That’s not the correct way to befriend someone\! Ugh, well what’s done is done, I guess. I’m Karrie by the way.”
 
-The girl let out a sigh. “Ugh, well what’s done is done. I’m Karrie by the way”. 
+My sunhat did a fine job of blocking me from the glaring sun, it also blocked everything higher than me, such as her face. Tilting my head to move it out of the way, a sight I had not expected punched me in the face. 
 
-My sunhat was blocking me from seeing her face. Tilting my head to move it out of the way, a sight I had not expected greeted me.
-
-“What? What are you doing here?” 
+“What? What are you doing here?” She took my line.
 
 “Ann?”
 
@@ -476,7 +429,7 @@ Chestnut-brown hair done in a short bob, a pair of brown eyes and above them, tw
 
 “Oh, sorry. Nice to meet you, I’m Esther. I live outside of town”. 
 
-“What kind of greeting is that supposed to be? And I already know who you are.” Tilting her head to the side. Her eyebrows seemed to question me. “Is this some kind of a new joke?”
+“What kind of greeting is that supposed to be? And I already know who you are.” Tilting her head to the side. Her eyebrows questioned me “Is this some kind of a new joke?”
 
 “Sorry it wasn’t a joke. I lost my memories a few days ago, so I don't remember anyone.”
 
@@ -484,23 +437,17 @@ Chestnut-brown hair done in a short bob, a pair of brown eyes and above them, tw
 
 “I don’t know, the priest said he didn’t know either.”
 
-“You called a priest? Must have been serious then…” She crossed her arms.
+She crossed her arms. “You called a priest? Must have been serious then…”
 
-“Whoah, that's so cool\!” Jumping into the conversation was a cheerful looking Eric.
-
-“So you don’t remember anything?” I nodded to his question.
-
-“What about your parents, did you remember them?”
+“Whoah, that's so cool\!” Jumping into the conversation was a cheerful looking Eric. “So you don’t remember anything? What about your parents, did you remember them?”
 
 “Hey\! What are you saying\!” Seeing her slap Eric on the back resurfaced some old memories. 
 
 “When I woke up, I just saw this pretty lady looking at me.” 
 
-“Yeah that’s right, she’s really pretty\!”. Eric said, rubbing his back. Tsk.
+“Yeah that’s right, she’s really pretty\!” Eric said, rubbing his back. Tsk.
 
-“Hey, stop clicking your tongue at me\! What did I do now?”
-
-Eric continued. “Well? And then what happened?”
+“Hey, stop clicking your tongue at me\! What did I do now? Well? And then what happened?”
 
 “Hey quit it, look how sad she is getting\!”
 
@@ -508,19 +455,17 @@ Sad? Me? Well this works out. The golden magic circle thingy had nagged at me an
 
 “Ann, do you know what happened on Earth?”
 
-She was silent, only looking at me. 
-
-Her mouth finally opened. “Oh.” Was she also reincarnated? “You were talking to me? I don’t know this erf thing you are talking about, but my name is Karrie.”
+She was silent, only looking at me. Her mouth finally opened after I had already drilled a hole into her eyes. “Oh.” Was she also reincarnated? “You were talking to me? I don’t know this erf thing you are talking about, but my name is Karrie.”
 
 No magic circle appeared. How could this be? She was definitely Ann. I couldn’t forget her face even if I wanted to. 
 
 “Are we going to play or what?” Eric said.
 
-“Ah, that’s right, let's do something fun\!” Ann- Karrie said.
+“Ah, that’s right, let's do something fun\!” Ann– Karrie said.
 
 “We? You gonna ditch the others?”
 
-“They only do tiring stuff, the weather is too hot today. I don’t want to get sweaty. You know anything interesting to do, Esther?” Right the circle must not be detecting lies after all.
+“They only do tiring stuff, the weather is too hot today and I don’t want to get sweaty. You know anything interesting to do, Esther?” Right the circle must not be detecting lies after all.
 
 “Esther? Hello?” 
 
@@ -534,9 +479,9 @@ Ridiculous as it sounds, it was the truth, or more correctly, I didn’t know an
 
 “You serious?” They said in tandem.
 
-“It was a joke”, was what I wanted to say as an excuse, however before I could let out the words exit my mouth, a golden magic circle had formed in front of it, blocking me from speaking.
+“It was a joke”, was what I wanted to say as an excuse, however before I could let the words exit my mouth, a golden magic circle had formed in front of it, blocking me from speaking.
 
-She really wasn’t Ann?
+So she really wasn’t Ann?
 
 # Chapter 4: Truth or Dare
 
@@ -548,49 +493,47 @@ She really wasn’t Ann?
 
 “I didn’t think that far…”
 
-The magic circle had dissipated. It had slowly faded into the air into nothingness, letting me speak again. I didn’t really want to play this game, it was never fun, but I figured I could use this opportunity to investigate whether that was Ann or not. She wouldn’t be able to figure out who I am, my face and body was completely different. I don’t think I even need to lie or tell the truth this time.
+The magic circle had dissipated. It slowly faded into the air into nothingness, letting me speak again. I didn’t actually want to play this game, it was never fun, but I figured I could use this opportunity to investigate whether that was Ann or not. She wouldn’t be able to figure out who I am, my face and body was completely different. I don’t think I even need to lie or tell the truth this time.
 
 “Let’s play truth or dare then.”
 
-Eric nodded. “Yes\! You can start, Esther, since you were the one who chose it.”
+Eric nodded. “Cool\! You can start, Esther, since you were the one who chose it.”
 
 I turned to Karrie. “Truth or dare.” She picked ‘truth’.
 
 “Is it true that your favorite color is red?” 
 
-“Yes, how did you know?” I shrugged. There was no golden circle this time.
+“Yes, how did you know?” There was no golden circle this time.
 
 “Okay, my turn. Eric, truth or dare?” 
 
 “I will pick dare of course.” He looked confident.
 
-“I dare you to climb that tree over there, give me a leaf.” The tree she pointed at was at least two stories high. 
+“I dare you to climb that tree over there, grab me a leaf.” The tree she pointed at was at least two stories high. 
 
-“Pfft\! That’s easy\!” Eric stood in front of the tree, its width as high as he was tall. He climbed the tree as fast as he went down, holding a big leaf in his hand.
+“Pfft\! That’s easy\!” 
 
-“Here you go.” He handed the leaf to an open-mouthed Karrie.
+Eric stood in front of the tree, its width wide as he was tall. With all four limbs he climbed the tree as fast as he jumped down, holding a big leaf in his hand. “Here you go.” He handed it to an open-mouthed Karrie as if it were some leaf he found on the ground.TK
 
 “What\! How did you do that\! That was so fast\!” She bounced up and down excitedly.
 
-“Hmm hmm, I’m the fastest in this town you know?” Eric puffed out his chest as Karrie and I showered him with praises. Then he picked me to choose ‘truth or dare’. I picked ‘truth’ of course, my body was getting sore.
+“Hmm hmm, I’m the fastest in this town you know?” Eric puffed out his chest as Karrie and I showered him with applause. Then he picked me to choose ‘truth or dare’. I picked ‘truth’ of course, my body was getting sore just from seeing that feat of athleticism.
 
-“Whats your mother’s favorite food?” Her favorite food that’s easy. Carrot stew.
+“Whats your mother’s favorite food?” Her favorite food, that’s easy. Carrot stew.
 
-“...\!” What? Why did it show up?
-
-“\!\!\!”
+“...” What? Why did it show up? “\!\!\!” Let me talk\!
 
 “You don’t remember? I didn’t know it was that bad…”
 
-“No wait, it’s …” No way.
+“No wait, it’s …” My voice cut off like someone had pressed pause on me.
 
 “Esther, you shouldn’t push yourself that hard.” Karrie seemed concerned. Why would *she* look concerned? 
 
-“I know it\! I just can’t say it\!
+“I know it\! I just can’t say it\!”
 
-Nothing. Absolutely nothing. I tried to say something else but it didn’t let me. It just blocked my mouth and dazzled. The thing couldn’t even be touched.
+Nothing. Absolutely nothing. I tried to say something else but it didn’t let me. It just blocked my mouth and dazzled. The thing couldn’t even be touched. 
 
-I heard them whisper. “Eric, maybe we should change games, she looks really angry…”
+I heard them whisper. “Eric, maybe we should stop, she looks really angry…”
 
 “Yeah…” Why were they whispering?
 
@@ -598,25 +541,28 @@ I heard them whisper. “Eric, maybe we should change games, she looks really an
 
 “No\! I want to play truth or dare\!” You were always like this.
 
-“Uhm, how about we change the question then, Eric can you-”
+“Uhm, how about we change the question then, Eric can you–”
 
-“Why should he change his question\! Stop getting in my way\!”
+“Why should he change his question\! Stop getting in the way\!”
 
 “Esther, I changed my question.”
 
 “Shut up\! The answer is—”
 
-“What is your favorite food”
+“What is your favorite food.”
 
-“—carrot soup\!” What? 
+“—carrot stew\!”
 
-Only the background noise of rustling trees and kids playing could be heard as I tried to understand what had just happened. They just stood there.
+Only the background noise of rustling trees and annoying children’s laughter could be heard while I tried to process what happened. The two of them just stood there.
 
-“What? My favorite food is carrot soup?” 
+“What? My favorite food is carrot stew?” 
 
-“Eshter, are you really okay? I know you always get sick but maybe you should rest for a bit?”
+“Esther, are you really okay? Maybe you should rest for a bit?”
 
-“Okay…” Karrie was looking at me just like Victoria did and Eric hadn’t said anything ever since I yelled out my favorite food. I dragged my body toward the tree Eric had climbed, and took a seat in its shadow. It was cold. I hugged my knees to try to warm up a bit.
+“Okay…” Karrie was looking at me just like Victoria did and Eric hadn’t said anything ever since I yelled out my favorite food. I dragged my body toward the tree Eric had climbed and took a seat in its shadow. It was cold. I hugged my knees to try to warm up a bit.
+
+I didn’t like being cold.  
+TK I didn’t like this dirty feeling. 
 
 The two of them ended up playing with the other kids for a while, before coming back to check up on me. Eric had offered another piece of candy to which I accepted, however it didn’t taste that sweet this time, it was just, sour.
 
@@ -628,27 +574,23 @@ I must have really looked terrible if we had to resort to playing that. She boun
 
 “Let me join the next round.” Eric smiled again.
 
-We sat under the tree and played a couple more rounds. Throwing out my hand this much had warmed up my body a bit. The bell rang in the distance as I noticed the sun hanging a little lower than it did before. 
+We sat under the tree and played a couple more rounds. Throwing out my hand this much had warmed up my body a smidge. The bell rang in the distance as I noticed the sun hanging a little lower than it did before. 
 
 “Aw shucks, I lost” Eric threw himself down on the grass, laying on his back.”
 
 “You’re really good at this Esther. It was like you already knew what we were going to throw.” Karrie said. 
 
-“Are you saying I know magic?” Eric didn’t have a poker face and I already knew Karrie’s thought pattern. “You guys sound like sore losers.” 
+“Are you saying I know magic? You guys sound like sore losers.” Eric didn’t have a poker face and I already knew Karrie’s thought pattern. It felt good winning.
 
 “You know magic?” Eric said from below, ignoring that last part.
 
 “I don’t think I do. How can you check?”
 
-“You just know it?” I thought back on the dozen golden circles. Was that magic? 
+“You just know it?” I thought back on the dozen golden circles. Was that magic? “A priest should know if they use their magic on you.”
 
-“A priest should know if they use their magic on you.”
+“Does divine magic work on me if I have magic?”
 
-“Can I be healed if I have magic?”
-
-“Of course you can”, Karrie said. “Healing magic works on everyone, I heard your body shines in your favorite color if you have the ability to use magic\!”
-
-“But nothing has shined from my body yet…” She drooped her shoulders.
+“Of course it does,” Karrie said. “Divine magic works on everyone, I heard your body shines in your favorite color if you have the ability to use magic\! But nothing has shined from my body yet…” She drooped her shoulders.
 
 “You know a lot about magic, Karrie. Did you want to be one?” Eric looked at her.
 
@@ -662,17 +604,17 @@ He flew up from the ground. “I’m not stupid\!”
 
 “Yes you are\! That's why she won\!”
 
-While they were having their little squabble, the other kids had already wrapped up their games and left the plaza. I began to also leave, dragging my feet toward the meeting point Victoria had told me. I missed her. The two others began following me as I approached the alleys, they all looked the same. 
+While they were having their little squabble, the other kids had already wrapped up their games and left the plaza. I began to also leave, dragging my feet toward the meeting point Victoria had told me. Maybe a hug from her would warm me up. The two others began following me as I approached the alleys. 
 
-“Esther”, Eric called out.
+“Esther,” Eric called out.
 
 “What is it?”
 
 “Thats the wrong way. The fountain is this way.” I saw him smirk.
 
-“Oh, I thought you were taking a shortcut, Esther. So sorry.” My cheeks felt hot as I turned and followed them instead.
+“Oh, I thought you were taking a shortcut, Esther.” My cheeks felt hot as I turned and followed them instead.
 
-With Eric leading the way, the three of us began our journey through the alleys. Chatting along the way were the two of them, their topics ranged from this to that. Occasionally, I gave an affirmative “Yes” or “I see” pretending to listen as I focused all my strength in my feet instead. They were beginning to hurt.
+With Eric leading the way, the three of us began our journey through the alleys. Chatting along the way were the two of them, their topics ranged from this to that. Occasionally, I gave an affirmative “yes” or “I see” pretending to listen as I focused all my strength in my feet instead. They were beginning to hurt.
 
 “Hey did you hear about the Executioner? How dead people keep popping up?” I turned my ears towards Eric.
 
@@ -684,15 +626,15 @@ With Eric leading the way, the three of us began our journey through the alleys.
 
 “He said thirty gold coins\!” Eric gestured with his hands.
 
-“Oh my goddess.” Was that a huge sum? “And you really believed him?”
+“Oh my goddess.” Was that such a huge sum? “And you really believed him?”
 
 “Well…”
 
 She shrugged. “I can’t remember the last time that daddy’s boy said something that was true.”
 
-“You do have a point.” He copied Karrie’s hand gesture.
+“You do have a point.” 
 
-The fountain came into view as we rounded the corner. Victoria was already there with Gale, the two of them talking to a woman. She wore pants, which I hadn’t seen a woman use in a while, and a big cape. Her light blue hair was also cut short, only reaching her chin. She looked pretty with that unusual hairdo.
+The fountain came into view as we rounded the corner. Victoria was already there with Gale, the two of them talking to a woman. She wore pants, which I hadn’t seen a woman use in a while, and a big cloak. Her light blue hair was also cut short, only reaching her chin. Everything about her was unusual.
 
 “Miss Victoria\!” Karrie shouted. “We brought Esther back”
 
@@ -706,25 +648,23 @@ Having heard her name being called, she turned toward us three. She smiled when 
 
 “Yeah, this is Eric and Karrie. But I think Karrie was already my friend.”
 
-The woman looked at me and then at my mother. “The resemblance is uncanny. Nice to meet you, I’m Raviel.” She gave me a bow. 
+The woman looked at me and then at my Victoria. “You two really look alike. Nice to meet you, I’m Raviel.” She gave me a bow. 
 
 “Hello, I’m Esther, I live out of town. I’m thirteen.” I bowed back, which got a chuckle out of her. Was there something funny?
 
 “I suppose it is time for the children to head back, should we meet again to finalize the contract?” Gale confirmed and Raviel left us, blending through the crowd of people.
 
-“Aw shucks, I’m gonna get scolded again\! Bye guys, and see you Lady Victoria\!” Eric left while waving toward my mother.
+“Aw shucks, I’m gonna get scolded again\! Bye guys, and see you Lady Victoria\!” Eric left while waving toward her.
 
 “Lady Victoria? Did that boy just..?” Yes he did, Gale.
 
-My mother waved back. “What a charming boy.” 
-
-“Karrie, did you go out alone again? Do you want to head back with us today?” Karrie glanced shyly at my mother and nodded.
+She waved back. “What a charming boy. Karrie, did you go out alone again? Do you want to head back with us today?” Karrie glanced shyly and nodded.
 
 With Karrie and I at the front, we began our journey back home. It was amazing how much Karrie could talk. My ear nearly fell off, still at least she looked happy chatting away. If only she could hear my inner turmoil.
 
-Was Ann or Karrie? She wasn’t Ann at the moment, yet her face was. It was fun playing with them today, I had a good time. *It wouldn’t hurt to just observe her*. Her mouth was opening and closing rapidly, letting the words flow out.
+She should have been dead like I was, yet here she was, opening and closing her mouth rapidly spewing out her words without a care in the world. Perhaps she didn’t retain her memories like me, it may be better that way. 
 
-We finally arrived at her house. It looked similar to ours, which stood there in the distance, even the tree in the backyard stood in a similar position.
+We finally arrived at her house. It looked similar to ours, which stood there in the distance. Even the tree in the backyard stood in a similar position.
 
 “See ya Esther\! I will definitely win next time, let’s play again\!”
 
@@ -734,47 +674,47 @@ My parents said farewell to her mother, who had come outside to scold her tomboy
 
 He adjusted the grip on the bag of stuff. “Raviel?” Gale explained that Raviel’s employer had apparently found a treasure map of some kind and needed some experienced people that knew the lay of the land. He boasted that no one knew this place better than him. The employer had apparently found him because of this boasting. 
 
-I don’t know about this idea of hers, doesn’t it sound suspicious? Such a high sum just to guide some people…”
+“I don’t know about this idea of hers, doesn’t it sound suspicious? Such a high sum just to guide some people…”
 
 “That’s just how they are. How about this?” He took her hand. “I will tell my men to immediately run should I sense anything dangerous. This job is too lucrative to give up.” He planted a kiss on the back of her hand. 
 
 “I’m really sorry for making you always do all this work…”
 
-“Nothing to be sorry about, I married you didn’t I?” I saw my mother blush while the red evening sun shone behind her.
+“Nothing to be sorry about, I married you didn’t I?” I saw Victoria blush while the red evening sun shone behind her.
 
-Getting tucked in by my mother became a routine of sorts after I moved rooms. Although it still felt awkward as I laid there, hiding half of my face under the blanket, while she looked over me.
+Getting tucked in by that woman became a routine of sorts after I moved rooms. Although it still felt awkward as I laid there, hiding half of my face under the blanket while she looked over me.
 
-“Did you have fun today?” I nodded.
+“Did you have fun today?” 
 
-I had made a commotion when my legs suddenly gave out and Gale had to carry me the rest of the way. She had fretted around the house blaming herself for not taking better care of me. It wasn’t until her husband comforted her saying that none of it was her fault. A child had to fall down to learn how to pick themself up, he said. My mother patted my belly as she sat there with a gentle expression. 
+I made a commotion when my legs suddenly gave out and Gale had to carry me the rest of the way. She had fretted around the house blaming herself for not taking better care of me. It wasn’t until her husband comforted her saying that none of it was her fault. A child had to fall down to learn how to pick themself up, he said. Victoria patted my belly with a gentle expression. 
 
 “I played truth or dare today.”
 
 “Really?”
 
-“But it wasn't any fun… So we played rock paper scissors instead.” My eyes felt heavier as Victoria kept patting my belly. 
-
-“I won, they didn’t even have a chance.”
+“But it wasn't any fun… So we played rock paper scissors instead.” My eyes felt heavier as she kept patting my belly. “I won, they didn’t even have a chance.”
 
 “Of course my daughter won. Why, she must be the best at rock paper scissors in the world.” She gave my forehead a kiss.
 
-Her mood always changed whenever something happened to me. Happy when she saw that I finished my meal. Sad when I looked exhausted from moving around. It was apparent even to me how much she loved her daughter. I wonder what I have to do to not make her make that sad expression anymore.
+Her mood always changed whenever something happened to me. Happy when she saw that I finished my meal. Sad when I looked exhausted from moving around. It was apparent even to me how much she loved her daughter. Her love was nauseating at first, suffocating me like a plastic bag over my head. 
 
-She left the room when I could no longer open my eyes. A lot had happened today. I ate grilled meat, stole– ate some candy Eric had given me, and met Karrie. It was honestly shocking seeing her but she was fun to be around. It had been a long time since I've had fun with others. 
+A lot had happened today. I ate grilled meat, stole– ate some candy Eric had given me, and met Karrie. It was honestly shocking seeing her, but it was fun being with her again. It had been a long time since I've had fun with others. 
 
-A sudden realization shook off my drowsiness as I opened my eyes wide. Laying on top of my desk was my coin pouch, it still had a silver coin in it. I forgot to spend my money\! Tomorrow, I would spend some money tomorrow, whatever it took.
+I had a dream that night. My hands were bloodied and the feeble woman crawling away from me tried to call out for help. Unfortunately, her throat had a deep cut in it, letting out bubbles of air instead of her shrill voice. Which number was she? I couldn’t remember.
 
 # Chapter 5: Church
 
-Sitting on the prayer bench, my eyes lost its focus staring at the hand-crafted marble statue. The sides of my dress had become wrinkled by how hard I clenched my hands. Today was the day of the Goddess, the seventh day of the week. 
+Sitting on the church bench, my eyes lost its focus staring at the hand-crafted marble statue. The sides of my dress had become wrinkled by how hard I clenched my hands. Today was the day of the Goddess, the seventh day of the week. 
 
-I had my whole day planned out. First, wear something comfortable. After that, go to town, maybe with Karrie if she wanted to and then use the whole day to go find something interesting to spend my money on. My mother had woken me up as usual, however this morning she told me to get ready for church. I glanced up at the statue of the goddess with her smug expression.
+I had my whole day planned out. First, wear something comfortable. After that, go to town, maybe with Karrie if she wanted to and then use the whole day to go find something interesting to spend my silver coin on. Victoria woke me up as usual, however this morning she told me to get ready for church. I glanced up at the statue of the goddess with her smug expression.
 
-The sight of statues was starting to really annoy me. Did they all really need to make the same face? Why can’t they just be faceless or have a mask on. At least make their eyes closed. The sunlight shone through the stained glass window, draping its colors across the hall. I sat where the red light shone, the perfect spot for the statue to look down at me. My dress would get ripped if I didn’t control myself.
+The sight of statues was starting to really annoy me. Did they all really need to make the same face? Why can’t they just be faceless or have a mask on. At least make their eyes closed. 
+
+The sunlight shone through the stained glass window, draping its colors across the hall. I sat where the red light shone, the perfect spot for the statue to look down at me. My dress would get torn if I didn’t control myself.
 
 “And onto us the Goddess bestowed these five commands\!” The headpriest doing the sermon shouted something familiar. He was a middle aged man wearing an all white garment, the only other color being the golden scarf thing. A stole I think it was called.
 
-He went on to explain the five rules one had to follow to not be damned: Killing, theft, adultery, lying, and intoxication. What? It was the same as the five precepts the monks used to tell me. Wasn’t it a unique concept? I thought back to what the monks had said to me once.  
+He went on to explain the five rules one had to follow to not be damned: Killing, theft, adultery, lying, and intoxication. Weird. It was the same as the five precepts the monks used to tell me. Wasn’t it a unique concept? I thought back to what the monks had said to me once.  
 
 “Do you know why drinking is the last thing to be mentioned? That’s because it’s the most important one.” The monk said.
 
@@ -798,117 +738,94 @@ Returning back to his temple, the master asked him if he had done something othe
 
 The monk chuckled. “You may still be a bit too young to understand”
 
-\*\*\*
+\*\*\*  
+“May you all be blessed by the Goddess\!” The booming voice snapped me out of my thoughts. The sermon had ended and the dozens of people started streaming out of the church. I followed my parents the opposite way.
 
-“May you all be blessed\!” The booming voice snapped me out of my thoughts. The sermon had ended and the dozens of people started streaming out of the church. I followed my parents the opposite way.
+“What a surprise to see you here today, Gale. Did something good happen?” The headpriest smiled.
 
-“What a surprise to see you here today, Mr. Gale. Did something good happen?” The headpriest smiled.
+I noticed him clenching his fist. “Good to see you too, Father.” A big golden circle appeared. I turned to see if the priest saw it, no reaction. “We were wondering if we could meet with the priest who paid us a visit a few days ago?”
 
-I noticed Gale clench his fist. “Good to see you too, Father.” A big golden circle appeared. I turned to see if the priest saw it, no reaction. 
+“Straight to the core of the matter as always.” The priest closed the holy book slowly, not making a sound, then with quiet steps, sauntered around the altar. “What’s with the hastiness? How about we chat over a cup of tea?” He motioned to the door at the back. 
 
-“We were wondering if we could meet with the priest who paid us a visit a few days ago?”
+“Thank you for the offer, but we don’t want to take up more of your time than necessary.”
 
-“Straight to the core of the matter as always.” The priest closed the holy book slowly, not making a sound, then with quiet steps, sauntered around the altar. 
+The priest stood still for a second, still smiling. “What a shame I just got these new tea leaves, it's not often you get things from the capital here you know?” He paused for another second. 
 
-“What’s with the hastiness? How about we chat over a cup of tea?” He motioned to the door at the back. 
+“You must be talking about Father Lawrence who joined us recently, speaking of which, he consulted with me on an interesting matter of his.” He turned and stared at me. “Hmm, I see.”
 
-“Thank you for the offer, but we don’t want to take up more of your time than necessary”
+I noticed something gold flicker in his eyes as Gale stepped forward, blocking his sight. “Sorry about, a force of habit”. He pulled out a bag from the altar. “Do you want some raisins?”
 
-The priest stood still for a moment, still smiling. “What a shame I just got these new tea leaves, it's not often you get things from the capital here you know?” He paused for a second. 
+“No thanks,” I said. I hated raisins.
 
-“You must be talking about Father Lawrence who joined us recently, speaking of which, he consulted with me on an interesting matter of his.” He turned and stared at me. His jovial expression still plastered on his face. 
+“Like father, like daughter.” He chuckled to himself. “Well, then. He should be in the library.” The priest opened the door lazedly, motioning us to follow.
 
-“Hmm, I see.”
+“He is still unpleasant as ever.” He sighed. “This won’t take long.” Victoria and I were left behind.
 
-I noticed something gold flicker in his eyes as Gale stepped forward, blocking his sight. 
+She bent down to talk to me. “Want to go visit the courtyard? I heard they got some new pretty flowers\!”
 
-“Sorry about, a force of habit”. He pulled out a bag from the altar. “Do you want some raisins?”
-
-“No thanks”, I said.
-
-“Like father, like daughter.” He chuckled to himself.
-
-“Well, then. He should be in the library.” The priest opened the door, motioning us to follow.
-
-“He is still unpleasant as ever.” He sighed. “This won’t take long.” Gale left, leaving my mother and I behind.
-
-My mother bent down to talk to me. “Want to go visit the courtyard? I heard they got some new pretty flowers\!”
-
-The smell of flowers tickled my nose as I strolled around the courtyard holding my mothers hand. Roses the size of my hand and other flowers in all kinds of colors lit up the well-trodden path. 
+The smell of flowers tickled my nose as I strolled around the courtyard holding her hand. Roses the size of my palm and other flowers in all kinds of colors lit up the well-trodden path. 
 
 “I wonder if we could take some home with us”, she studied the peonies, “don’t you think it would spruce up our home, Esther?”
 
-I nodded. A golden circle had appeared before my mouth. I hated flowers. I couldn’t care less about them. They cost too much and their fragrant smell made me feel sick. I had seen enough of them already. Maybe I should ask the priest if he knew something about this annoying thing.
+All I could do was nod, a golden circle had appeared before my mouth. I hated flowers. I couldn’t care less about them. They cost too much and their fragrant smell made me feel sick. I had seen enough of them already. Maybe I should ask the priest if he knew something about this annoying thing.
 
 We sat on a bench after my mother was done with her flower-gazing. The gray church stood like a castle in the courtyard.
 
-I turned to Victoria “Mom, would you rather I had my memories back?”
+I turned to Victoria. “Mom, would you rather I had my memories back?”
 
 “What are you talking about sweetie?” She furrowed her brows.
 
 “Isn’t that why we are at the church? To ask for a cure?”
 
-“Well…” She took a moment to say the next words. “You know we will always love you, right?”
+“Well…” She took a moment to say the next words. “You know we will always love you, right?” We just felt that you may be a bit frustrated not knowing all the things your father and I are talking about.”
 
-I nodded.
+I turned away from her gaze. “I’m not. It’s kinda fun learning new things everyday.” I didn’t need to look to figure out what expression she had, she had wrapped her arms around me and gave me a hug.
 
-“We just felt that you may be a bit frustrated not knowing all the things your father and I are talking about.”
-
-“I’m not.” I turned away from her gaze. “It’s kinda fun learning new things everyday”.
-
-I didn’t need to look to figure out what expression she had, she had wrapped her arms around me and gave me a hug.
-
-“Esther\!” Someone shouted my name.
-
-“Let’s play\!” It was Karrie, wearing a dress this time. Her pale shoulders peeked above her dress. I got permission to play for a bit and went over to where Karrie was waving. 
+“Esther\!” Someone shouted my name. “Let’s play\!” It was Karrie, wearing a dress this time. Her pale shoulders peeked above her dress. I got permission to play for a bit and went over to where Karrie was waving. 
 
 “Are you still getting hugs at your age?” 
 
-“What’s wrong with that, I like them.”
+“What’s wrong with that? I like them.”
 
-“Wow… Gross…” She rubbed her shoulders. “I can’t believe how different you are now…”
+“Wow… Gross…” She rubbed her shoulders. “I can’t believe how different you are now.”
 
 “Really, how did I act before?”
 
-“Uhm”, she hesitated, “it didn’t look like you liked you mom that much”
+“Uhm, it didn’t look like you liked your mom that much.”
 
-“That’s ridiculous, was I stupid or something?”
+“That’s ridiculous, was I stupid or something? Why would I dislike her?”
 
 “Yeah, I thought so too\! Your mom is ten times nicer than mine.”
 
-Karrie told me more things about Esther, how she behaved, how she talked, and how she never looked to really have fun whenever she played, always having a sad or tired expression on her face. Karrie seemed to like this version of Esther a lot more.
+Karrie told me more things about Esther, how she behaved, how she talked, and how she never looked to really have fun whenever she played, always having a sad or tired expression on her face. It sounded like Karrie liked this version of Esther a lot more.
 
 “Hey, let's go find some cool insects.”
 
 “Insects? How do you find them?”
 
-“Oh right, you just need to find a really big rock and lift it.” She motioned with her hands. “I saw some really big ones behind the church\!”
+“You just need to find a really big rock and lift it.” She motioned with her hands. “I saw some really big ones behind the church\!”
 
-Following her, I turned around and looked at my mother. Her hair was gently swaying in the cool wind and she had her eyes closed with a peaceful expression. I should let her sleep some more.
+Following her, I turned around and looked at Victoria. Her hair was gently swaying in the cool wind and she had her eyes closed with a peaceful expression. I should let her sleep some more.
 
-“This one will do.” Karrie gripped a decently sized rock and turned it over. Dozens of insects scrawled around as their roof had disappeared. A big worm squirmed there on the dirt. It twirled and twirled as if trying to become a ball before deciding to rather be a stick. It was disgusting. Why don’t you just dig in the dirt if you’re getting burned by the sun? You incompetent worm. I’m glad I didn’t reincarnate into this stupid thing. 
+TKmaybeexpand. “This one will do.” Karrie gripped a decently sized rock and turned it over. Dozens of insects scrawled around as their roof disappeared. A big worm squirmed there on the dirt. It twirled and twirled as if trying to become a ball was its life’s purpose, before deciding to rather be a stick. It was disgusting. It reminded me of that woman I dreamt about. Why don’t you just dig in the dirt if you’re getting burned by the sun? You incompetent worm. I’m glad I didn’t reincarnate into this stupid thing. 
 
-I grabbed a nearby stick and stabbed it in its thick part. It went unscathed, my stick only pressing it into the dirt helping it find cover from the sun. I stabbed it again and again. There was a small hole where it had squirmed. It had disappeared. I couldn’t even kill this single insignificant worm. 
+I grabbed a nearby stick and stabbed it in its thick part. It went unscathed. My stick only pressing it further into the dirt helping it find cover from the sun. I stabbed at it again and again. Again, again, and again. There was a small crater where it had squirmed. It had disappeared. I couldn’t even kill this single insignificant worm. 
 
-“Whoah, look at that beetle\!”
+“Whoah, look at that beetle\!” The outside rushed back into my senses. Karrie pointed at a beetle.
 
-The outside rushed back into my senses. Karrie pointed with a stick at a beetle.
+“I bet ya it will stink twice as much,” she said chirpily before upturning rock after rock, looking for an even bigger beetle. I didn’t see how she could enjoy herself.
 
-“I bet ya it will stink twice as much”, she said chirpily before upturning rock after rock, looking for an even bigger beetle. I didn’t see how she could enjoy herself.
+“What are you dumb girls doing?” Someone interrupted our activity. Strutting toward us was a tall moss-headed boy and a plain boy trailing behind him.
 
-“What are you dumb girls doing?” Someone interrupted our playing.
+“Ugh, it’s Finn and his lackey.”
 
-Strutting toward us was a tall moss-headed boy and another boy trailing behind him.
-
-“Ugh, it’s Finn and his lackey”
-
-“Who’s that?”
+“Who are they?”
 
 “Someone annoying, just ignore them.” She turned away from them.
 
 “Hey\! I asked you a question\!” Moss-boy demanded
 
-The other boy spoke up. “Bro, why are we even talking to them? Let’s go find some cool sticks\!”
+“Bro, why are we even talking to them? Let’s go find some cool sticks\!”
 
 “I don’t care about some dumb sticks\!” He suddenly roared. 
 
@@ -918,7 +835,7 @@ Karrie sighed. “What do you want?” Her voice contrasted her earlier cheery t
 
 “You\!” The green boy pointed at her. “Why are you hanging out with Esther?”
 
-“It’s nonya”
+“It’s nonya.”
 
 “What’s nonya?” The other boy asked.
 
@@ -926,7 +843,7 @@ Karrie sighed. “What do you want?” Her voice contrasted her earlier cheery t
 
 “Thats not funny\!” 
 
-Crossing his arms he turned to me. “Esther, you shouldn’t hang out with her.” Who was he to tell me what to do?
+Crossing his arms he turned to me. “Esther, you shouldn’t hang out with her.” Who the hell was he to tell me what to do?
 
 “Why not?”
 
@@ -934,7 +851,7 @@ Crossing his arms he turned to me. “Esther, you shouldn’t hang out with her.
 
 “What rumours?” 
 
-“Hey\!-” Karrie tried to interrupt him. 
+“Hey–” Karrie tried to interrupt him. 
 
 “That you are always pretending\!”
 
@@ -944,37 +861,35 @@ Crossing his arms he turned to me. “Esther, you shouldn’t hang out with her.
 
 I looked toward Karrie, he had spoken the truth.
 
-“Esther, I didn’t really mean to-”
+“Esther, I didn’t really mean to–”
 
-“Yeah right.” Finn interrupted. “You are only pretending to hang out with her aren’t you. You probably have some other evil plan to make Esther sad again. You are a bad person, Karrie.” Karrie looked like a beaten up puppy as he barraged her with comments. He looked proud. That image irritated me, she was my friend.
+“Yeah right.” Finn interrupted. “You are only pretending to hang out with her aren’t you. You probably have some new evil plan to make her sad again. Stop being so jealous, Karrie.” She looked like a beaten up dog as he barraged her with comments. He looked smug. That image irritated me to no end, she was my friend. 
 
-“You shouldn’t hang out with those types of people.” He reached his hand toward me. 
+“You shouldn’t hang out with those types of people.” He reached his soft hand toward me. “I didn’t believe those rumours at all you know?” He lied. “You should hang out with someone with a good personality like me instead.” His cheeks reddened a little as he said that. 
 
-“I didn’t believe those rumours at all you know?” He lied. 
+I see, so that’s what it was. These kinds of people showed up occasionally in front of me. But each and every last one of them turned their nose at me after a while. Yeah, there was no way he would have a good personality with that irritating face of his. Should I kill him?
 
-“You should hang out with someone with a good personality like me instead” His cheeks reddened a little as he said that. 
-
-Is that how it works? He didn’t look like a person with a good personality. Actually, in the short time I saw and heard him, I thought the opposite to be true.
-
-“No thanks.” I said flatly. Finn’s hand dropped a little. “I’d rather play with Karrie.”
+“No thanks, I’d rather play with Karrie.” Mosshead’s hand dropped.
 
 “What? Why?” 
 
-“Because you are stupid, and your personality sucks.” Finn and the boy looked shocked. 
+“Because you are stupid, and your personality sucks.” The two boys looked shocked. 
 
-“What? Esther, I’m trying to help you out here\!”
+“What? I’m trying to help you out here\!”
 
 “Yeah, Finn is the smartest out of all of us\!” The other stupid boy said stupidly.
 
-“Why are you getting angry? I should be angry at you for even talking to me.”
+“I don’t need or want your help. And why are you getting angry? I should be angry at you for even talking to me.”
 
 “Esther…” Karrie said meekly.
 
+“Your hair must really be made out of moss for you not even being able to understand that.”
+
 “I’m not getting angry\!” The circle dazzled. “My dad said getting angry is only for weak people\!”
 
-“Is that right, then you must be both angry and stupid. And your dad must be stupid too\!” I felt my blood rushing in my veins.
+“Is that right? then you must be both angry and stupid. And your dad must be stupid too\!” I felt my blood rushing in my veins.
 
-“Don’t call my dad stupid\!” My vision yanked upward towards the sky. The front of my shoulders hurt but the impact on the back of my head made that seem small in comparison. He had shoved me to the ground. 
+“Don’t call my dad stupid\!” My vision yanked upward towards the sky. It was blue and free of clouds, giving the sun a free shot at my eyes. The front of my shoulders hurt, but that paled in comparison to the impact the back of my head got. That piece of moss had shoved me to the dirty ground.
 
 “Hey\! Why did you do that\!”
 
@@ -982,15 +897,13 @@ Is that how it works? He didn’t look like a person with a good personality. Ac
 
 “Bro, let's just get out of here\!” 
 
-They scurried away while I grabbed my head. I’ve had enough. Everything irritated me. Irritating statues, irritating gold circles, and irritating people. 
+They scurried away while I grabbed my head. I’ve had enough. Everything irritated me. Irritating statues, irritating gold circles, and irritating people. It irritated me how this body was so weak, it irritated me that Victoria was always looking so concerned. And it irritated me how I couldn’t control my emotions.
 
-I turned to Karrie standing above me. She was shouting at them. “You cowards\! Why are you running\! Come back here\!”
+I turned to Karrie standing above me. She shouted at them. “You cowards\! Why are you running\! Come back here\!”
 
 “Karrie.”
 
-“Oh, Esther, are you okay?” She had a conflicted expression on her face as she helped me up.
-
-“I’m really sorry…” 
+“Oh, Esther, are you okay?” She had a conflicted expression on her face as she helped me up. “I’m really sorry…” 
 
 “Why are you sorry? They should be the ones saying sorry.” My voice growled.
 
@@ -1004,9 +917,9 @@ Karrie’s eyes blew up like a pair of plates.
 
 “What a bad joke…”
 
-# Chapter 6: A corpse
+# Chapter 6: Red Lily
 
-I felt like this situation had happened before.  
+It felt like this situation had happened before.  
 
 “It’s not a joke.” I felt the wind in my sails disappear a little.
 
@@ -1016,13 +929,13 @@ Karrie took a deep breath. “Thanks for trying to cheer me up, Esther, but I di
 
 The wind disappeared completely. I stood frozen as I stared at the top of her head. Being on the receiving end of an apology was weird. I had always been me on the other side. Her hair rustled in the cool summer wind.
 
-“Ugh, this is so embarrassing\!” Karrie lifted her head, her cheeks red like beets. “Just say whether you accept it or not\!”  
+“Ugh, this is so embarrassing\! Just say whether you accept it or not\!” Karrie lifted her head, her cheeks red like beets.
 
 “Oh. Sorry, I accept your apology.” Was that how you did it?
 
 “No\! Now it just sounds like I forced you\!” Karrie seemed to struggle with something as she hid her face behind her hands.
 
-I stared at her face. “It’s fine Karrie. I want to be friends with you too”
+“It’s fine Karrie. I want to be friends with you too”
 
 “Really?” She peeked between her fingers. “Even when I said those things about you?”
 
@@ -1032,16 +945,16 @@ I stared at her face. “It’s fine Karrie. I want to be friends with you too�
 
 “More importantly, where does Finn live?”
 
-Karrie opened her eyes wide. “Why? Are you going to demand an apology? No chance.”
+Karrie opened her eyes wide. “Why? Are you going to demand an apology? No chance in getting that.”
 
 “What are you talking about, I just don’t want his stupidity spreading to me. I need to know where he lives to do that.”
 
-Karrie let out a chuckle, joining me in throwing insults at him, before telling me what his address was.
+Karrie let out a chuckle, joining me in throwing insults at him before telling me what his address was.
 
 “I see”, I gave her the biggest smile I could muster. “Thanks”.
 
 \*\*\*  
-The sound of metal being hit by hammers could be heard piercing through the background noise containing the clinking of the armored people, and the chatter of people promoting their wares. Black smoke bloomed atop the chimneys of the blacksmiths making the air feel a little stifling.
+The sound of metal being hit by hammers could be heard piercing through the background noise containing the clinking of the armored people, and the chatter of shopkeepers promoting their wares. Black smoke bloomed atop the chimneys of the blacksmiths making the air feel a little stifling.
 
 “This ain’t no place for a younging like you to go play around”. A sooty old man said to me. “Where are you parents, kid”.
 
@@ -1063,29 +976,19 @@ Looking exasperated, he staggered around the counter to face me. I had to crane 
 
 “How much for this one?” I pointed to a simple looking dagger.
 
-He frowned. “Didn’t you hear me? These are for killing things.” He looked me up and down. 
+He frowned. “Didn’t you hear me? These are for killing things.” He looked me up and down. I stared back.
 
-He gave me a new glance, looking me up and down. I stared back.
-
-“Two gold coins” No golden circle, it was the correct price.
-
-I opened the bag Victoria had bought for me. It looked like a pocketbook.  
+“Two gold coins.” No golden circle, it was the correct price. So catching that wanted person would fetch me fifteen of these. I opened the bag where my coin pouch was.
 
 “Do you have anything for one silver?”
 
-He clicked his tongue. “Check that pile over there, rejects, the lot of them.”
+He clicked his tongue. “Check that pile over there, rejects, the lot of them.” The box was piled in the dozens with either bent products or half-finished projects. “Made ‘em in my apprentice days”
 
-The box was piled in the dozens with either bent products or half-finished projects.  
+“Must be really old then.” 
 
-“Made ‘em in my apprentice days”
+He snorted. “I see you got humour in you, kid.”
 
-“Must be really old then.” I remarked.
-
-“I see you got humour in you, kid.”
-
-He picked the most decent thing out for me. It was a dagger made of a single piece of metal, it looked like a big toothpick. 
-
-Holding it in my hand I gave it a few swings and stabs. The old man let out an impressed whistle seeing my movements. The dagger felt good in my hand. This would do.
+He picked the most decent thing out for me. It was a dagger made of a single piece of metal, it looked like a big toothpick. Holding it in my hand I gave it a few swings and stabs. The old man let out an impressed whistle seeing my movements. It felt good in my hand, this would do.
 
 “You seem to really like it.” He appeared to be enjoying himself.
 
@@ -1093,13 +996,11 @@ I tried giving him my silver coin but he stopped me, shooing me with his hand.
 
 “Take it, it’s just scrap metal to me. I don’t know what a young girl like you needs with a dagger, just make sure to not get hurt.” 
 
-He wasn’t as grumpy as I thought. Putting the dagger in my pocketbook, I gave him a curtsy I learnt from Victoria and went on my merry way. Karrie was waiting for me at the end of the street. 
+He wasn’t as grumpy as I thought. Putting the dagger in my bag, I gave him a curtsy I learnt from Victoria and went on my merry way. Karrie was waiting for me at the end of the street. 
 
 Our family had met up with hers at the church and suggested having a bite together in town. While the adults talked about adult things, Karrie and I scurried off together to look at cool things. 
 
-“I don’t get why you wanted to look around here, Esther. It’s so noisy and it stinks.” 
-
-She turned to her left. “And why are you here?”
+“I don’t get why you wanted to look around here, Esther. It’s so noisy and it stinks.” She turned to her left. “And why are you here?”
 
 “You guys looked to do something fun\!” Eric had spotted us walking around. 
 
@@ -1109,51 +1010,50 @@ I nodded.
 
 “Nice\! Let’s go check out that huge crowd over there\! I heard even the Baron has come\!” Eric said excitedly. 
 
-Dragging us along, he told us about the killer that had been terrorising the townspeople for the past few weeks. Whenever there was a gathering of guards, it would mean a body had popped up. The people were starting to get used to it. A green haired, in better armor than the other guards, could be seen directing the others. He must be Finn’s father.
+Dragging us along, he told us about the killer that had been terrorising the townspeople for the past few weeks. Whenever there was a gathering of guards, it would mean a body had popped up. The people were starting to get used to it. A green haired man, in better armor than the other guards, could be seen directing the others. He must be the captain, Finn’s father.
 
-The guards had linked together to make a semi-circle around the point of interest, barring all entry to the onlookers. There was a man kneeling on the ground surrounded by flowers, he seemed to be a farmer judging by his clothes. His back sat straight as he cradled the object in his arms; it stared at me. A pair of open lifeless eyes stared at me. Where his head should have been, stood only a neck stump. A flower had been pressed down his throat. A white lily, stained with drops of blood. The man had been decapitated and displayed like a piece of art. It was pretty.
+The guards had linked together like a chain to make a semi-circle around the point of interest, barring all entry to the onlookers. There was a man kneeling on the ground surrounded by flowers, he seemed to be a farmer judging by his clothes. His hands appeared to have been crushed by something. From his pinky to his index finger, the flesh had been mushed like a crushed worm.
+
+His back sat straight as he cradled the object in his arms; it stared at me. A pair of open lifeless eyes stared at me. Where his head should have been, stood only a neck stump. A flower had been pressed down his throat. A red lily, once white, was now stained with blood. The man had been decapitated and displayed like a piece of art. It was pretty.
 
 “How horrible…” A woman from the crowd gasped.
 
 “Tsk, of course it's another one of us.” Another shabbily dressed man spat.
 
-“Goddess, please protect us from this demon\!” An old woman broke out into prayer, mirroring the decapitated man. The blood had pooled on the rough cobblestones underneath, making me wonder if the roses were originally white or red. It painted a picturesque scene. It looked almost religious. 
+“Goddess, please protect us from this demon\!” An old woman broke out into prayer, mirroring the decapitated man. 
 
-Covering my face in my hands, I could feel the corners of my face twitch.
+The blood had pooled on the rough cobblestones underneath, making me wonder if the roses were originally white or red. It painted a picturesque scene. It looked almost religious. Covering my face in my hands, I could feel the corners of my face twitch. 
 
-“Eric, I’m about to puke… Why did you bring us here?” Karrie’s face was white like a sweet piece of marshmallow. I imagined squeezing her soft face. 
+“Eric, I’m about to puke… Why did you bring us here?” Her face was white like a sweet piece of marshmallow. I imagined squeezing her soft face. 
 
 “I thought it would be cool…” Why are you biting your lips Eric? This is cool\! You don’t need to frown okay? 
 
 “You okay Esther?” She patted my back as I stood there hiding my face. 
 
-Sorry Ann, I don’t want to see your face right now. And I don’t want you to see mine either. I crouched down to hide myself. 
+Ha ha, sorry Ann, I don’t want to see your face right now. And I don’t want you to see mine either. I crouched down to hide myself. 
 
-“My lord\! We have to hire more guards\!” The mossy man talked to the chubby man.
+“Uncle\! We have to hire more guards\!” The mossy man talked to the chubby man.
 
-“Uhm, aren’t there enough of you? The finances were a little tight right now…” Oh, Mr. Baron, why are you lying? 
+“Uhm, aren’t there enough of you? The finances are a little tight right now…” Oh, Mr. Baron, why are you lying? 
 
-“Enough of us?\! This has been the fourth time The Executioner has struck you know\!”
+“Enough of us?\! This has been the fourth time the Executioner has struck you know\! How much longer are you going to let that beast roam around terrorizing us?”
 
 “How is that my problem? You are the captain of the guards, just go arrest the damned man.” 
 
 “And how are we supposed to do that with only thirty of us\!”
 
-“That sounds like a lot to me.”
+“That sounds like a whole lot to me.”
 
-Murmurs could be heard from the crowd but I couldn’t focus.
+Murmurs could be heard from the crowd but I couldn’t focus anymore. It was just too funny. 
 
 “Eric, I don’t think Esther should be here any longer, we should go back.”
 
 “Yeah, sorry…”
 
-\*\*\*
-
+\*\*\*  
 “Hello kids, you look like you’ve seen a ghost or something\!” Karrie’s father guffawed. 
 
-“Uh, yeah, ha ha.” Eric replied.
-
-Sitting around the table were our parents chatting away. 
+“Uh, yeah, ha ha.” Eric replied. Sitting around the table were our parents chatting away. 
 
 “What happened?” Victoria asked us. 
 
@@ -1163,7 +1063,7 @@ Seeing that Karrie and Eric didn’t have anything to say, I spoke up. “Do gho
 
 His wife let out a sigh. “There he goes again…” 
 
-“Come sit with me, Esther.” Victoria picked me up and put me on her lap. Karrie looked to be envious of me. 
+“Come sit with me, Esther.” Victoria picked me up and put me on her lap. Heh, are you jealous Karrie?
 
 “Oh, yeah?” Gale asked. “And then what did you do?”
 
@@ -1171,93 +1071,116 @@ His wife let out a sigh. “There he goes again…”
 
 His wife let out another sigh. “I don’t understand why you are telling other people about your cowardice…”
 
-“Nonsense\! It’s not cowardice, it's called being smart. Think”, he tapped his head with a finger, “how am I supposed to beat up a ghost? I don't even know how to use magic\!” He looked proud as he pointed his nose in the air.
+“Nonsense\! It’s not cowardice, it's called being smart. Think”, he tapped his head with a finger, “how am I supposed to beat up a ghost? I don't even know how to use magic\!” He looked proud as he pointed his nose in the air. “Speaking of, what happened to that job of yours?”
 
-“Speaking of, what happened to that job of yours?”
-
-“Ugh, don’t even mention it.” Gale leant back into his chair crossing his arms. “They suddenly cancelled it, saying some nonsense about it being too dangerous and we weren’t the right fit.
+Gale leant back into his chair crossing his arms. “Don’t even mention it. They suddenly cancelled it, saying some nonsense about it being too dangerous and we weren’t the right fit.”
 
 “Hah, if you’re not the right fit then I wonder who is?”
 
-“Right? Although it’s getting worrisome how this isn’t the first time the job’s been cancelled. Gale threw his hand in the air. “What must one do to get a decent paying job around here?”
+“Right? Although it’s getting worrisome how this isn’t the first time the jobs have  been cancelled.” Gale threw his hand in the air. “What must one do to get a decent paying job around here?”
 
-Victoria fed me one of the bits of food on the table, it was tasty. “I’m just glad nothing dangerous happened”. Eric and Karrie looked stupid sitting there.
+Victoria fed me one of the bits of food on the table, it was tasty. “I’m just glad nothing dangerous happened”. Eric and Karrie looked stupid sitting there not eating this..
 
 “It did sound suspicious." Karrie’s mother remarked. “I tell you, all men must think they are invincible.”  
 
 “It adds to their charm don’t you think?” She covered her pretty mouth as she gave out a small laugh. 
 
-“It’s a wonder how you two are still in your honeymoon phase…” She glanced at her husband. He shrugged.
+“It’s a wonder how you two are still in your honeymoon phase…” She glanced at her husband. 
 
-“Maybe they got scared off by the Executioner?” He said. Oh, they both flinched at the same time upon hearing the moniker.
+He shrugged. “Maybe they got scared off by the Executioner?” Oh, they both flinched at the same time like two moles upon hearing the moniker.
 
 “What a horrid name, they still haven’t catched them?” Gale replied.
 
 “Well, you know how our lord likes to do things” He pointed his chin towards where the Barons manor stood.
 
-Clicking his tongue, Gale chugged down the rest of his cup. “They always prioritise the wrong things, those nobles. What happened to noblesse oblige?”
+Gale chugged down the rest of his cup. “They always prioritise the wrong things, those nobles. What happened to noblesse oblige?”
 
-“That nobles had the duty to protect us commoners? Ha, you really believe in that nonsense?”
+“That nobles have the duty to protect us commoners? Ha, you really believe in that nonsense?”
 
-The four adults continued to chat with each other until it was time to head home. Eric promised to do something more fun next time and apologized to Karrie and I. Karrie gave him a smack on his back, telling him it was fine. And me? I didn’t mind, I had better things to think about. 
+The four adults continued to chat with each other until it was time to head home. Eric promised to do something more fun next time and apologized to Karrie and I. She gave him a smack on his back, telling him it was fine. And me? I didn’t mind, I had better things to think about. 
 
-Tonight. Tonight? *Tonight.*
+I couldn't wait for night to come.
 
 # Chapter 7: Finn
 
-Hearing something plink at his window, Finn woke up after the third time it happened. With heavyset feet, he shuffled to the window, opening it. He thought it was one of the boys always hanging out with him. Instead, under his window stood someone wholly unexpected. It was Esther. Her golden hair glistened in the moonlight. She was about to throw another pebble until she noticed him.
+“So I can go to heaven if I confess my sins?”
+
+“Confessing your sins isn’t a thing, only you can forgive yourself and promise not to commit said sin anymore.” The monk and I stared at the big building where the big statue was. “Besides, are you sure you want to go to heaven?”
+
+“Why not? Wouldn’t it be natural to want to go there?”
+
+“And who decided that it was natural?” 
+
+“Sounds a lot better than going to hell.” He smiled.
+
+“Do you know why out of the six realms, the human realm is the most desirable place to be?” I stared at the ridiculous words coming from the monk. “Heaven is far too comfortable to learn about the suffering of the world, and hell is too sufferable to learn about the comforts of life. Us humans that live in the middle, have the opportunity to learn about both, thus giving us the biggest chance to reach enlightenment. Even angels have to die, afterall.”
+
+We arrived at the wooden carving of a ship’s wheel on our walk. He said it represented eternal reincarnation. 
+
+“Then I want to be a cat in my next life.”
+
+He laughed.
+
+\*\*\*  
+Hearing something plink at his window, Finn woke up after the third time it happened. With heavyset feet, he shuffled to the window, opening it. He thought it was one of the boys always hanging out with him. Instead, under his window stood someone wholly unexpected. It was Esther. Her golden hair glistened in the moonlight. She was about to throw another pebble until her beautiful purple eyes noticed him.
 
 “Ah, there you are." She said cheerfully.
 
 “Esther? What are you doing here?” It was in the middle of the night.
 
-“Come down, I want to talk with you”
+“Come down, I want to talk with you.”
 
-“Right now?” Finn had also wanted to talk to her. He didn’t mean to shove her and wanted to apologise, his father said that a man had to do that if they hurt a woman. 
+“Right now?” Finn had also wanted to talk to her. He didn’t mean to shove her and wanted to apologise, his father said that it was the man’s job to do that if they hurt a woman. 
 
 “Give me a second.” He whispered loudly.
 
-What did she want to talk about? Did she finally get hurt by that girl again? That must be it. She had acted like she wasn’t interested, yet she showed up in his backyard. His heart rate rose a bit higher and with a light gait left his room. He listed down the stairs; careful not to wake up his dad, and finally arrived at the front door. 
+What did she want to talk about? They didn’t actually know each other that well. Did she finally get hurt by that girl again? That must be it. She acted like she wasn’t interested in what he said, yet here she was, in his backyard in the middle of the night. 
 
-Grabbing the door handle and slowly turning it, the mechanism in the door began to operate, making it ring out clicking noises. It reverberated across the entrance. In the slight gap he managed to open, stood a silhouette. Esther was already in front of the door, waiting, smiling. Finn couldn’t help but let out a yelp as she had been closer than he thought. 
+His heart rate rose a bit higher and with a light gait, left his room. Listed down the stairs; careful not to wake up his exhausted dad and finally arrived at the front door. 
 
-“Did I scare you?” Her crescent moon shaped eyes sparkled in the darkness like small sapphires.
+His heart rate rose a bit higher and with a light gait, left his room. But there was a slight problem, the stairs liked to creak whenever someone stepped on them. His exhausted dad was a light sleeper. Searching with his toes where the creaks liked to creak, he successfully found himself at the front door. Safe and sound. His heart? Not so much.
+
+Grabbing the door handle and slowly turning it, the mechanism in the door began to operate, making it ring out clicking noises. It reverberated across the entrance. In the slight gap he managed to open, stood a silhouette. Esther was already in front of the door, waiting, smiling. Finn couldn’t help but let out a yelp as her face was closer than he thought.
+
+“Did I scare you?” Her crescent moon shaped eyes sparkled in the darkness like small amethysts.
 
 “Not really…” Finn thought she really was pretty.
 
-“Come follow me\!” The words flowing from her soft lips felt almost enchanting. Ordering him to follow after her.
+“Come follow me\!” The words flowing from her soft lips felt almost enchanting, ordering him to follow after her.
 
 “Where are we going?” They were heading into the forest out back.
 
-“Just a bit further?” She said without turning. Her golden hair flowed like wings under the bright full moon, shining beautifully. It was like he was following a fairy.
+“Just a bit further?” She said without turning. Her golden hair flowed like wings under the bright full moon, bouncing beautifully each time she took a step. It was like he was following a fairy.
 
 “What do you mean?” They had walked quite the distance. “What did you want to talk about?” 
 
-He felt his heart thumping in his mouth. They finally stopped. Standing in the middle of the moonlit forest was Him and Esther. His father had often played with him in this very forest, sometimes even camping through the night, saying a knight must know how to sleep outside. He was fond of his dad, he wanted to be just like him. Esther turned around, her smile shone brighter than even the moon above.
+He felt his heart thumping in his mouth. They finally stopped. Standing in the middle of the moonlit forest was him and Esther. 
 
-“This looks like a good spot”
+His father had often played with him in this very forest, sometimes even camping through the night, saying a knight must know how to sleep outside. He was fond of his dad, he wanted to be just like him. Esther turned around, her smile shone brighter than even the moon above.
 
-“A spot for what?” His heart was thumping like it wanted to jump out of his mouth. 
+“This looks like a good spot.”
+
+“A spot for what?” His heart wanted to jump out of his mouth.
 
 “I have a confession I want to make.” She hid her dainty hands behind her back. 
 
-Oh, my goddess, a confession\! Calm down. Finn felt his palms get sweaty, and his knees felt heavy. Play it cool, Finn. Remember how she called you stupid.
+Oh, my goddess, a confession\! Calm down\! Finn felt his palms get sweaty, and his knees felt heavy. Play it cool, Finn. Remember how she called you stupid. Yeah, you don’t like being called stupid by her, right?
 
 “W-what is it?” Damn it, his voice cracked.
 
 “I think you already know.” She smiled shyly. “Close your eyes for me?”
 
-Finn was utterly done. With his eyes closed, he heard her soft footsteps inch closer and closer. 
+Finn was utterly done. She could call him stupid every day of the week if she wanted. With his eyes closed, he heard her soft footsteps inch closer and closer. 
 
 “You know Finn…” She trailed the last letter of his name. 
 
-“I really. Really, really. Hate people like you\!” A sudden sharp feeling poked at his neck, throwing him over backwards. Opening his eyes in shock, Esther was standing there. The dagger she held glinted in the summer night.
+“I really. Really, really.” He heard the smile in her voice. “Hate people like you.” A sudden sharp feeling poked at his neck, throwing him over backwards. Opening his eyes in shock, Esther was standing there. The dagger she held glinted in the summer night.
 
 What? Why didn’t it pierce his neck?
 
-“Huh?” The boy on the ground said stupidly. “Did you just stab me?” He was touching the spot where I had thrusted. Damn\! I need to kill him right now\!
+“Huh?” The boy on the ground said stupidly. “Did you just stab me?” He was touching the spot where I stabbed. Damn it \! I need to kill him right now\!
 
-“Stay away\!” He scrambled to his feet to get away from me, before tripping over his own feet, planting his face in the dirt. I can’t let him get away.\!
+“Stay away\!” He scrambled to his feet to get away from me, before tripping over his own feet, planting his face firmly in the dirt. I can’t let him get away\!
 
 With heavy feet, I ran over to him. He had turned over like a turtle, legs sprawling out towards me. “What are you doing\!” He crawled backwards, eventually hitting his back against one of the many trees in the dark forest.
 
@@ -1271,23 +1194,23 @@ I stabbed him in the throat.
 
 I heard him scream, but the soft sensation of flesh was nowhere to be felt. My dagger had bounced off.
 
-I stabbed again
+I stabbed again.
 
 It bounced off again. A golden circle sparkled under the tip of my dagger.
 
 What? 
 
-Finn looked at me with a shocked expression before moving his body. I could see the horizon flip over as I saw a shoe land squarely into my gut. The knife flew across my eyes, shining like a shooting star.
+Finn looked at me with a shocked expression before moving his body. I saw the horizon flip over for the second time today, a shoe had landed squarely into my gut. The dagger flew from my hand, shining like a shooting star.
 
-I tried to gather air back into my lungs, only managing to let out small heaves. It hurt. I couldn’t move my body. Why didn’t the dagger go through his throat?
+Trying to gather air back into my lungs, only made me let go of small heaves. It hurt. I couldn’t move my body. Why didn’t the dagger go through his throat?
 
 “You’re crazy\!” He stood up. “You’ve gone insane\!”
 
-Don’t say that. You know I’m not insane. I know I’m not.
+Don’t say that. You know I’m not insane. Because I know I’m not.
 
 “What do I do, what do I do?”
 
-I tried to move my body, but it just hurt so much. A rib must have been broken. 
+It just hurt so much. A rib must have been broken. 
 
 “Dad, I have to wake up dad\!”
 
@@ -1319,23 +1242,23 @@ Ann was wearing our school uniform.
 
 Turning her phone toward me, I saw the date. It was 20XX.
 
-“That can’t be…”
+“That’s impossible.”
 
 I could hear the bustling noises of people walking outside our classroom. There were always people talking outside our classroom.
 
 “What do you mean?” Ann placed a pencil on the tip of her nose, balancing it.
 
-“I killed you, you are supposed to be dead.” The pencil snapped in half, each half making a sound as it hit my desk.
+“You are supposed to be dead.” The pencil snapped in half, each half making a sound as it hit my desk.
 
-“Oh, right”
+“Oh, right.”
 
 The classroom shattered, everything disappearing. 
 
-Ann was currently laying in a casket. Countless people had gathered around it, all wearing black. They looked familiar but I couldn't recognize them, all of them had a funeral veil on. The sounds of crying and hiccuping could be heard all over. It was maddening.
+Ann was currently laying in a casket. Countless people had gathered around it, all wearing black. They looked familiar but I couldn't recognize any of them, they all had a funeral veil on. The sounds of sobbing and wailing could be heard all over. It was maddening.
 
 “Is this better?” Ann smiled.
 
-Plastered all around were huge flower crests. The fragrant smell coming from them did not help my confusion. The walls of flowers were pressing in on me. I felt my sweat trickle down my back. The wailing people grabbed onto me, dragging me down into the ground. I commanded my legs to run out of here, but they were stuck in the floor as it slowly sank.
+Plastered all around were huge flower crests. The fragrant smell coming from them did not help my confusion. Like a vice, the walls of flowers began pressing into me. With nowhere to run, the wailing people grabbed onto me, my legs, my waist, my arms, my shoulders and at last, my head. Dragging. Dragging me into the ground. Their incessant cries filled my thoughts. They dragged me down with their disgusting and slimy hands. 
 
 Standing atop her own casket, Ann stared down at me. 
 
@@ -1392,21 +1315,17 @@ The thing covering my eyes vanished. A lamp blinded my eyes struggling to adapt 
 
 “Ah, ah ah\!” He sang, wagging his finger at me. “Don’t waste your energy, no one has broken free from those knots before\!” He seemed proud.
 
-“Why are you doing this?” I had to buy time, where is the way out?
+“Why are you doing this?” Don’t panic. Buy time. Where is the way out?
 
 “Why? Isn’t that obvious?”
 
 “What about your son? What would Finn think?”
 
-He grabbed my head. “How dare you utter his name.”
-
-“It doesn’t matter what he thinks\! He just needs to be safe\!” His face looked just like the paintings of demons the temple liked to hang up. I felt a familiar scent in the dusty air. The rope was digging into my wrists.
+He grabbed my head. “How dare you utter his name. “It doesn’t matter what he thinks\! He just needs to be safe\!” His face looked just like the paintings of demons the temple liked to hang up. I felt a familiar scent in the dusty air. The rope was digging into my wrists.
 
 “You’re insane.”
 
-“Me? Insane? You tried to kill my son\! You are the insane one here\!” Some of his spit landed on my cheek.
-
-“What did he do to you\!”
+“Me? Insane? You tried to kill my son\! And you have the gall to call me insane\!” Some of his spit landed on my cheek. “What did he do to you\!”
 
 What did he do? “It’s personal”
 
@@ -1416,23 +1335,23 @@ What did he do? “It’s personal”
 
 “That damn vixen\! Always flaunting herself everywhere she goes\! Who does she think she is\!” He moved his arms erratically around, making them cast long shadows in the room.
 
-“That’s right, I can just pay her a visit. A personal one.” What?
+“That’s right, I can just pay her a visit. A personal one.” 
 
 “Don’t…” I mumbled.
 
 He took a step closer. “What was that?”
 
-“Don’t…” He turned his ear toward me, getting closer. “Don’t you dare touch her\!” I slammed into his head with my own, falling over in the process, chair and all. The pain from my broken rib made my adrenaline spike.
+“Don’t…” He turned his ear toward me. Getting closer. “Don’t you dare touch her\!” I slammed into his head with my own, falling over in the process, chair and all. The pain from my broken rib made my adrenaline spike.
 
 “You touch her and I will kill-”
 
 The tip of his boot dug into my gut. “You demon brat\!” I spat out blood.
 
-“That does it, after I’m finished with you”, he yanked my hair, “your pretty little mother is next.”
+“That does it, after I’m finished with you,” he yanked my hair, “your pretty little mother is next.”
 
 He set me back up. I had to get out of here, Victoria was in danger. I have to at least tell Gale. Think, there was always a way out-
 
-He pulled out a small box filled with white roses. There were ten of them. He went to one of the walls, taking with him a hammer. He took one of the roses and placed it under my left hand.
+He pulled out a small box filled with a flower. There was a single flower. A white lily. He went to one of the walls, taking with him a hammer. He placed the pure white lily under my left hand.
 
 “What are you doing?”
 
@@ -1490,7 +1409,7 @@ Closing his eyes, Gale began focusing on the air surrounding his body. This was 
 
 Calm yourself, Gale repeated in his mind. Something warm entered his body as they traveled through his veins up to his eyes. He had successfully absorbed mana in the air. Opening his eyes, the world lit up in numerous colors. Reds, blues and yellows. Five glowing trails of mana could be seen in the area. Four of them seeping into the lonely house in the middle of the night, and a fifth heading towards the town. It was gray. 
 
-The different colors indicated a person's innate affinity for mana, whether they could use it or not. Gray was not a color Gale had seen before, but he surmised that it had something to do with her inability to accept divine magic. 
+The different colors indicated a person's innate affinity for mana, whether they could use it or not. Gray was not a color Gale had seen before, he surmised that it had something to do with her inability to accept divine magic. 
 
 What was his daughter doing walking to the town at this time? He began sprinting, following the gray trail as the moon shone onto his back. 
 
@@ -1499,53 +1418,45 @@ What was his daughter doing walking to the town at this time? He began sprinting
 
 “Stop\!” The hammer slammed into the base of the finger.
 
-“Why shouldI?” He looked confused. “You tried killing my son\!” A fresh flower was put under my hand again. Under the finger that had it’s outer flesh ripped out. I felt my heart pulse through my body as the fat layer peeked at me. Light yellow. Squirming. It was disgusting.
+“Why should I? You tried killing my son\!” My blood dripped on the white petals. It dripped from the finger that had its outer flesh torn. My heart pulsed through my body as the fat layer peeked at me. Light yellow. Squirming. It was disgusting.
 
-“Ahhh\!” The hammer crushed another one of my fingers. Painting another rose.
+“Ahhh\!” The hammer crushed another one of my fingers. Tears began welling up.
 
 “No one touches my son without my permission\!”
 
 Why, why why. Why was this happening?
 
-“Shh, don’t you cry little girl.” My hair ruffled in his hand. “The goddess will welcome us all with open arms\!” The goddess? “You know that right?” He changed the flowers. There were two red roses staring at me on the table. 
-
-“Shh, don’t you cry little girl.” My hair was yanked after with his hand. “The goddess will welcome us all with open arms\!” The goddess? He changed the flowers. Two red roses, like the eyes of a snake were staring at me.
-
-“Huh?”
-
-“I was a lost little lamb just like you when my wife died. But you know what? It was remarkably easy to find the right road again\!” My blood dripped everywhere as he flung the hammer this and that way. “All I had to do was donate a small part of whatever I earned\!” 
+“Shh, don’t you cry little girl.” My hair was yanked after with his hand. “The goddess will welcome us all with open arms\!” The goddess?
 
 “I was a lost little lamb just like you when my wife suddenly died. But you know what? It was remarkably easy to find the right road again\!” My blood flew everywhere as he swung the hammer this way and that way. “All I had to do was donate some money\!”
 
 “Ugh\!” A third finger was mangled. 
 
-“Money\! All everyone cares about is money\! I thought they would be different, but no, even those priests preaching about the greed of mankind grabbed my dirty coins. It was everything I had.” He suddenly stopped moving. He was staring into the air. “It was everything.”
+“Money\! All everyone cares about is money\! I thought they would be different, but no, even those priests preaching about the greed of mankind grabbed my dirty coins. It was everything I had.” He suddenly stopped moving, staring into the air. “It was everything.”
 
-“That wench had used it all\!” I could hear my own shriek echoing in the room after he broke my fourth finger. He didn’t even swap out the rose.
+“That wench had used it all\!” I could hear my own shriek echoing in the room after he broke my fourth finger. The crushed nerve endings sent signals to my brain to do something. But what was there to do? Tell me.
 
 A thumb was what separated us humans from animals, someone said to me once. I took solace in that thought as he dropped the hammer, letting it thud to the floor. Would I be able to leave now?
 
-“She used me\! Me\! Do you understand?\!” I don’t understand. I don’t understand any of it. Why was I reincarnated? Did the goddess send me here? Was this my punishment? I don’t get it.
+“She used me\! Me\! Do you understand?\!” I don’t understand. I don’t understand any of it. Why was I reincarnated? Did the Goddess send me here? Was this my punishment? I don’t get it.
 
 “Not a single thing was left for my son. How could she.” Tears rolled down his face. “You, why would she do that? Shouldn’t a parent protect their own children?”
 
 “I d-don’t know…”
 
-“Right.” He smacked his forehead. “What was I thinking. Stupid, stupid stupid stupid.” Four loud smacks. Then he began laughing. Keeling over grabbing his own stomach he laughed loud enough to make my ears ring. Oh, he was insane. I was going to die here.
+“Right.” He smacked his forehead. “What was I thinking? Stupid, stupid stupid stupid.” Four loud smacks, the same number of broken digits I had. Then he began laughing. Keeling over grabbing his own stomach he laughed loud enough to make my ears ring. Oh, he was insane. I was going to die here.
 
 “Enough\!” Following him with my eyes, he went to the wall. 
 
-“Please…” He picked up a knife. I was just starting to be familiar with this life. Eating tasty food, waking up in a warm bed, getting hugged by Victoria. All those things made me want to live. The knife shone in the light as he came closer.
+“Please…” He picked up a knife. I was just starting to be familiar with this life. Eating tasty food when I was hungry. Waking up in a warm bed after sleeping. Getting hugged by that woman, Victoria. I wanted to live here for a bit longer. The knife glinted in the light as he came closer.
 
 “Mom…” I really don’t want to die again.
 
-“Don’t you worry”, he raised his knife, “you will be able to meet her soon.”
+“Don’t you worry,” he raised his knife. “You will be able to meet her soon.”
 
-I’m sorry mom. I can’t stop crying. I promise that I’m not meaning to. Just don’t leave me again.
+I’m sorry mom. I can’t stop crying. I know I promised to not cry anymore, but I just can’t control myself. Just don’t leave me again.
 
-The knife cut into my neck, severing my veins and letting the musty air invade through a new slit in my throat. Or it should have happened. Opening my eyes I saw something glow below my eyes.
-
-“What?” 
+The knife cut into my neck, severing my veins and letting the musty air invade through a new slit in my throat. Bleeding to death twice was my fate. That is what should have happened. Opening my eyes I saw something glow below my eyes.
 
 “Hah.” I had to laugh.
 
@@ -1555,19 +1466,21 @@ The knife cut into my neck, severing my veins and letting the musty air invade t
 
 “What’s so damn funny you witch\!”
 
-“You can’t kill me\!” 
+“You can’t kill me\! The Goddess–” 
 
-He raised his arm and the next second my face met the dirty floor. He punched me. It hurt. That didn’t matter, as long as I wouldn’t die. I was about to spit out the bitter thing filling my mouth when something wrapped around my neck. He was choking me. Two rough hands was robbing my of air. Ah, I didn’t think of that. 
+He raised his arm and the next second my face met the dirty floor. He punched me. It hurt. That didn’t matter, as long as I wouldn’t die. I was about to spit out the bitter thing filling my mouth when something wrapped around my neck. He was choking me. Two rough hands were robbing me of air. Ah, I didn’t think of that. 
 
-Twisting and turning my body did little to stop my suffocation. I think it made it worse. Dark spots were beginning to cover my eyes.
+Like a worm, twisting and turning my body did little to stop my suffocation. I think it made it worse. Dark spots were beginning to cover my eyes.
 
-Dying should only be experienced once per life. But here I was, about to lose my second life. It must have been a curse. Would I simply die again in my next life? And in the life after that? Living was suffering. That sentence flooded my mind as I grasped for air, holding on to the single strand of life still left in me. Then my lungs expanded. I could breathe again.
+Dying should only be experienced once per life. But here I was, about to lose my second life. It must have been a curse. Would I simply die again in my next life? And in the life after that? Living was suffering. That sentence flooded my mind as I grasped for air, holding on to the single strand of life still left in me. 
 
-Something had sent him flying across the room, letting all the tools fall over him. The thudding of their reveberated to my eyes as it traveled through the floor. Grabbing the closest thing, he pointed it at the person standing in front of me. 
+Then my lungs expanded. I could breathe again.
+
+Something had sent him flying across the room, letting all the tools fall over him. The thudding coming from them reverberated to my eyes as it traveled through the floor. Grabbing the closest thing, he pointed it at the person standing in front of me. 
 
 “Who the hell are you\!”
 
-“Shut up you bastard\!” His voice was similar. “You dare touch my daughter\!” Oh, it was Gale, my father. Something plopped onto the ground with a soft thud. It was a hand. Spurting out blood from it’s cut end, it still held onto the knife. With a swift strike, my father had it sliced it off with his sword.
+“Shut up you bastard\!” His voice was similar. “You dare touch my daughter\!” Oh, it was Gale, my father. Something plopped onto the ground with a soft thud. It was a hand. Spurting out blood from its cut end, it still held onto the knife. With a swift strike, my father had sliced it off with his sword.
 
 “My hand\!” He let out a roar like an animal.
 
@@ -1577,7 +1490,7 @@ Something had sent him flying across the room, letting all the tools fall over h
 
 “Ahhh w-wait\!”
 
-He swung his sword again. It was the left leg this time. Right under the kneecap, where the two bones met eachother, my father severed it with pinpoint precision. A pool of blood had gathered under the triple-amputated man.
+He swung his sword again. It was the left leg this time. Right under the kneecap, where the two bones met each other, my father severed it with pinpoint precision. A pool of blood had gathered under the triple-amputated man.
 
 “W-wait\!”
 
@@ -1589,7 +1502,7 @@ Another slash, another leg.
 
 The blade sliced cleanly through his esophagus, his vertebrae and the rest of his neck. His head was sent flying through the air before rolling on the dirty floor, picking up all the bits of dirt and grime. His eyes were still open as they stared at me.
 
-“Esther\!” He turned toward me, covered in blood and sweat. “Oh my goddess, let me get you out of here.” he began untying my hands and feet.
+“Esther\!” He turned toward me, covered in blood and sweat. “Oh my Goddess, let me get you out of here.” he began untying my hands and feet.
 
 “Dad…”
 
@@ -1605,8 +1518,7 @@ The blade sliced cleanly through his esophagus, his vertebrae and the rest of hi
 
 “I don’t want to die…” I clung to my father.
 
-# Chapter 9: Aftermath
-
+\*\*\*  
 Victoria was pacing around and around the living room of her neighbors. Her eyebrows were scrunched up at the thought of her disappeared daughter. There had been some violent crimes recently, it couldn't be right? Why would they take–
 
 Someone grasped her arm, making her stop pacing. “Victoria, how about we calm down a little first?” It was her friend. “I’m sure nothing happened to her.”
@@ -1648,21 +1560,24 @@ There were four people in their living room, no make that five. Someone was lyin
 
 “Huh?” Alas, it was too late. She saw that her friend Esther was lying on the dinner table. Dozens of red bandages littering the room.
 
-TK maybe move this whole part to previous chapter\*\*\*
+# Chapter 9: Annoying Smiles
 
-The incident threw the whole town into chaos. The captain of the guards had died, his body displayed in the middle of town square for all to see, his limbs stacked like bricks on his body. The townspeople started protesting, demanding the capture of the Executioner. The Baron, now without his trusted captain, had to listen to the angry mob, lest he be trampled under their angry feet. A missive had been sent from Barre and resultingly, a bunch of guards from the surrounding towns and cities got sent to our town. It must have cost the Baron a lot.
+The incident threw the whole town into chaos. The captain of the guards had died, his body displayed in the middle of town square for all to see, his limbs stacked like bricks on his body. 
 
-Dad investigated the secret area and found a field of white roses growing in the dark. I didn’t know what to feel that Finn's father had been The executioner, I didn’t want to feel anything about that matter. 
+The townspeople started protesting, demanding the capture of the Executioner. The Baron, now without his trusted captain, had to listen to the angry mob, lest he be trampled under their angry feet. A missive had been sent from Barre and resultingly, a bunch of guards from the surrounding towns and cities got sent to our town. It must have cost the Baron a lot.
 
-The newly appointed captain of the guards took the new recruits and did a town-wide search and found the secret area. My dad had erased all traces of us and made it seem like he left town. The guards came to that conclusion and relayed the facts to the townspeople. Seeing the massive number of guards patrolling their streets, they had to reluctantly accept the theory. 
+Father investigated the hidden area and found a field of white lilies growing in the dark. I didn’t know what to feel that Finn's father had been The Executioner, I didn’t want to feel anything about that matter. 
+
+The newly appointed captain of the guards took the new recruits and did a town-wide search and found the place. My father had erased all traces of us and made it seem like he left town. The guards came to that same conclusion and relayed the facts to the townspeople. Seeing the massive number of guards patrolling their streets, they had to reluctantly accept the situation. 
 
 Nothing happened the following weeks and the townspeople began celebrating each week that passed without a murder, it was like a small festival that attracted the neighboring towns and cities. The Baron was beyond happy that more people spent money in his town.
 
-And so two months had passed. The leaves were turning brown and thin summer dresses changed into longer dresses and coats. The skin on my left hand had healed on its own but the damaged fingers could still not fully bend. Scars and disfigured flesh marred my skin where the hammer had hit it. 
+And so two months passed. The leaves were turning brown and thin summer dresses changed into longer dresses and coats. My left hand had healed on its own but the damaged fingers could still not fully bend. Scars and disfigured flesh marred my skin where the hammer had hit it. 
 
-My mom was beside herself when she first saw me being carried in by my dad. The physical pain was extreme, but the pain of hearing my moms sobbing through the night hurt me more. She had cried for two weeks straight. 
+My mother was beside herself when she first saw me being carried in by my father.   
+The physical pain was extreme, but the pain coming from my aching heart hearing her sob through the night hurt me more. She had cried for two weeks straight.
 
-She had calmed down considerably, now only hovering around me occasionally. A sad expression crept onto her face each time she saw my hands, which made me want to start wearing gloves. Telling her this only made her sadder. The next day a pair of comfy gloves sat on my hands.
+My mother had calmed down considerably, now only hovering around me occasionally. A sad expression crept onto her face each time she saw my hands, which made me want to start wearing gloves. Telling her this only made her sadder. The next day a pair of comfy gloves sat on my hands.
 
 “They’re pretty.” Karrie said. She was visiting me again today. 
 
@@ -1686,15 +1601,15 @@ Karrie went on to tell me about her day like usual. She made a pile of leaves wh
 
 “Ah, you’re always like this, we young maidens should be out and find someone special.”
 
-“I think you've read too many romance novels.” 
+“I think you've read too many romance comics.” 
 
-“Novels? What are those? But I like the sound of romance.” She hugged her own shoulders. 
+“Comics? What are those? But I like the sound of romance.” She hugged her own shoulders. 
 
 “Should we go together?” 
 
 “Are you well enough to do that?”
 
-“Watch this.” Swooping my legs off the bed, I planted my thin feet firmly on the ground. “Ta da”
+“Watch this.” Swooping my legs off the bed, I planted my thin feet firmly on the ground. “Ta da.”
 
 Karrie let out a ‘whoah’ and clapped her hands. Then stopped as I had to catch myself on the bed. 
 
@@ -1710,11 +1625,11 @@ One more week passed and my body was finally well enough to actually go do somet
 
 “I don’t really know but it should be something amazing\!”
 
-“I’ve never seen a play before.” I had never been to a cinema for that matter either.
+“I’ve never seen a play before.” I’ve never been to a cinema for that matter either.
 
 “Well, that’s because you are always at home. Mmph\!” 
 
-“Haha, then prepare yourself to be amazed.” Karrie was holding both her hands to Eric’s mouth at this point. 
+Karrie was holding both her hands to Eric’s mouth at this point. “Haha, then prepare yourself to be amazed.” 
 
 A scene had been erected in the town square. The actors began their play as applause from the crowd died down. Their movements and clothes gripped my attention throughout.
 
@@ -1722,7 +1637,7 @@ It began with a commoner girl singing and dancing all the while sweeping the flo
 
 “My dear daughter, it is I, your father.”
 
-Her father was a baron and had sought after her after hearing that one of the maids that had run away had borne a child. The girl looked flabbergasted as she rode in the carriage. 
+Her father was a rich baron and had sought after her after hearing that one of the maids that ran away had borne a child. The girl looked flabbergasted as she rode in the carriage. 
 
 “No more cleaning, no more sweeping?”
 
@@ -1732,7 +1647,7 @@ A flute played a gentle song as she took in her new surroundings, sounding like 
 
 Fast forward and she was entering the royal academy. A place where other nobles would meet her for the first time. 
 
-“Oh noes\! I have wandered too far and lost my way. What ever shall I do?” 
+“Oh noes\! I have wandered too far and lost my way. What ever shall I do?” The actor waved her hands.
 
 “Milady fret not. It is but a minute walk away from here.” A blond princely face greeted us, making some of the women in the crowd let out murmurs. Karrie had been bewitched it looked like. 
 
@@ -1742,7 +1657,7 @@ Fast forward and she was entering the royal academy. A place where other nobles 
 
 The pair of them went to the entrance where a woman was waiting. She had a blood red dress and even spotted a hand fan.
 
-“Eugene, where have you been and who is that woman sticking onto you like a leech?” Clack, a satisfying sound reverberated as she folded the fan.
+“My Eugene, where have you been and who is that woman sticking onto you like a leech?” Clack, a satisfying sound reverberated as she folded the fan.
 
 “A leech she is not, she was just lost is all. Lady Lara.”
 
@@ -1750,11 +1665,11 @@ She pointed her fan at the leech. “And who is this lost lady that managed to f
 
 “Oh\! My name is Rebecca\!” She curtsied.
 
-“Hmpf. What a horrid greeting.”
+“Hmpf. What a horrid curtsy.”
 
-The second act of the play went on to detail Rebecca’s academy life as she routinely got harassed by Lara. The crowd jeered each time she appeared on the stage. Booed, when she reprimanded the heroine for always being with the prince. Cried when the heroine got soaked from tea. And cheered when Eugene ran towards her each time Lara did something to her.
+The second act of the play went on to detail Rebecca’s academy life as she routinely got harassed by Lara. The crowd jeered each time she appeared on the stage. Booed, when she reprimanded the heroine for always being with the prince. Cried when the heroine got soaked from Lara accidentally throwing her tea cup. And cheered when Eugene found her each time Rebecca hid away with tears in her eyes.
 
-I found it amazing that the actor could maintain her composure in this atmosphere, it was the same for Lara. Not only did the crowd jeer, even her classmates did the same. 
+I found it amazing that Lara’s actor could maintain her composure in this atmosphere. I felt the same for Lara. Not only did the audience jeer, even her classmates did the same. 
 
 “Don’t you think she went too far this time?” Classmate one asked.
 
@@ -1762,25 +1677,25 @@ I found it amazing that the actor could maintain her composure in this atmospher
 
 “But how could she do that to the poor lady Rebecca? Whatever did she do?”
 
-The crowd nodded in agreement. Why?
+The crowd nodded in agreement. Were they daft?
 
-Lara had justification in doing all those things. Eugene was her fiancee, then why was she always hovering around him? My skin began itching as the crowd went against all my expectations. 
+Lara had justification in doing all those things. She repeatedly told off the heroine for being rude and tactless. Told her off when she clung to Eugene. He was her fiancee, so why was she always hovering around him? My skin began itching as the crowd became more hypocritical and went against all my expectations.
 
 The scene was now a solo act, where Lara planned her next action. She held up a small vial.
 
 “With this the leech will finally let go of my fiancee\! No longer will he turn his eyes toward that wretched woman\!” 
 
-But she didn’t do it. She didn’t poison the leech. Hiding it in her room, she went on to meet with her fiancee. A basket of homemade cookies in her hand. Eugene had invited her to a picnic on this fine morning. 
+But she didn’t do it. She didn’t poison the leech. Hiding it in her room, she went on to meet with her fiancee like normal. A basket of homemade cookies in her hand. Eugene had invited her and only her, to a picnic on this fine morning. It was their secret meeting place after all. A secluded little place in the palace gardens. 
 
-The basket fell to the ground as she approached the location. Rebecca had already arrived before her. Giggling and laughing at each and every word coming out of Eugene’s mouth. 
+The basket fell to the ground as she approached the location. Rebecca had already arrived before her. Giggling and laughing at each and every word coming out of his mouth. He appeared to be enjoying himself in their private spot.
 
-She gave up.
+Lara gave up.
 
 “Perhaps it is fate… All my life for this moment to be stolen away…”
 
-Lara you idiot. If you hated her that much, then why didn’t you just kill her? Ah. She couldn’t. Just like me.
+Lara you idiot, stop moping in your room. Leave your life behind if it saddens you so. Leave that scoundrel of a prince and go live freely in peace doing what yourself want. If you hate her that much, why don’t you just kill her? Use that vial of yours and– Ah. So that’s why. She couldn’t. Just like me.
 
-The third act opened with Rebecca getting poisoned at the royal ball. Eugene was holding the heroine in his arms in front of a shocked crowd.
+The third act opened with the heroine getting poisoned at the royal ball. The male lead was holding the heroine in his arms in front of a shocked crowd.
 
 “Lara\! Why did you poison her?\!” Eugene roared. A gathering of guards rushed in from the sides. 
 
@@ -1788,19 +1703,22 @@ The third act opened with Rebecca getting poisoned at the royal ball. Eugene was
 
 “How can you say that with this damning evidence\!” A vial was presented for us to see. It was the same vial that she had hid in her room.
 
-“I had thought you to be better than this\!” The hero caressed the girl in his arms. “Guards\! Take her away\!”
+“I had thought you to be better than this\!” The hero caressed the damsel in his arms. “Guards\! Take her away\!”
 
-Stripped of all her titles and responsibilities, she could do nothing but lament the situation. Lara was to be executed for her transgressions. Sitting in the cold dungeon, a pitiful soliloquy started.  
-“Oh, goddess. Why have you set up my fate like this? Why couldn’t you just give my life to that leech before I gave my heart away?” She stretched towards the heavens. “Why have you forsaken me?” TK read ending of the stranger
+Stripped of all her titles and responsibilities, she could do nothing but lament the situation. The antagonist was to be executed for her transgressions. Sitting in the cold dungeon, a pitiful soliloquy started.
 
-The play ended with the death of the former fiance of the prince. At the scene of the marriage, claps rang in my ears as everyone around me cheered and whistled for the ‘true’ pair. It was loud. It was irritating. My hand was beginning to hurt as I had to clench them. This was ridiculous.   
+“Oh, goddess. Why have you set up my fate like this? Why couldn’t you just give my life to that leech before I gave my own heart away? Right. You should have just not let me live this vain life.” She stretched towards the heavens. “Why have you cursed me so, my Goddess?”
+
+The play ended with the death of the former fiance of the prince. Applause rang out as she dangled on the execution platform. Her legs jerked as her body resisted, against the rope, against the air, and against life itself. It was futile. No one, the audience, Karrie and Eric, the actors, not even the Goddess wanted her to live. All except me.
+
+At the scene of the marriage, claps rang in my ears as everyone around me cheered and whistled for the ‘true’ pair. It was loud. It was irritating. My hand hurt, I had clenched it too hard. This was ridiculous.  
    
 \*\*\*  
 I glared at the statue towering over me. What’s so funny, huh? The marble face smiled at me.
 
 We were visiting the church today. Father had asked, or demanded, that the head priest use his healing magic on me. In the hopes that a greater amount of divine magic would be different. The eternally smiling priest frowned for a second as something unpleasant entered my body before bouncing off.
 
-The sun shone through the stained glass, blinding my eyes in red. Why was I reincarnated? Was this even a reincarnation? I took over someone’s dead body and still had my own memories. The monks said that life was like a wheel, neither a start nor an ending existed. Would that explain my current situation? Nothing made sense. I glared at the statue.
+The sun shone through the stained glass, blinding my eyes in red. Why was I reincarnated? Was this even a reincarnation? I took over someone’s dead body and still had my own memories. The monks said that life was like a wheel, neither a start nor an ending existed. Would that explain my current situation? Nothing made sense. I glared at the irksome statue.
 
 And why did my knife bounce off his neck? I wouldn’t have been captured had he just died right there in that forest, there and then. It was perfect. A bitter taste filled my mouth as my teeth ground against each other. The golden circles had both blocked my knife and his knife. 
 
@@ -1808,21 +1726,21 @@ And why did my knife bounce off his neck? I wouldn’t have been captured had he
 
 “Why did you send me here?” The goddess just looked at me, smugly.
 
-“What am I supposed to do\!” I stood up.
+ I stood up. “What am I supposed to do\!”
 
 “I don’t understand.” 
 
 “I said I don’t understand\!” 
 
-The sun stood behind the statue, like a guardian giving it a golden halo. Its rays were still stabbing in my eyes, not caring in the least that it blinded me.
+The sun stood behind the statue, like a guardian giving it a golden halo. Its rays were still stabbing in my eyes, not caring in the least that it blinded me. 
 
 “Don’t you look at me like that, wipe that goddamn smile off your face\!”
 
-It was heavy. Her gaze made me fall to my knees. The carpet felt rough and hard.
+It was heavy. Her presence. Her gaze made me fall to my knees. The carpet felt rough and hard.
 
 “Say something… anything…”
 
-“I didn’t ask for this…” A handful of the itchy carpet gathered in my fists.
+“I didn’t ask for this…” A handful of the itchy carpet gathered in my fists, crumpling the once flat fabric.
 
 “I can’t even kill anyone in this life\!” I banged on the carpeted floor. “What am I supposed to do?\!” It hurt. 
 
@@ -1832,7 +1750,7 @@ It was heavy. Her gaze made me fall to my knees. The carpet felt rough and hard.
 
 I didn’t want her to see me like this, hiding myself into her arms, I dug my face until nothing was visible in my eyes. “Mom…”
 
-“What is it sweetie? It’s okay, just tell me”
+“What is it sweetie? It’s okay, just tell me.”
 
 “I want to go home…”
 
@@ -1882,7 +1800,7 @@ Baking a cake appeared to be far easier than I thought. Either that or my mom wa
 
 A low voice called out to us. “Oh, what’s the special occasion today?” 
 
-“Dad\!” Running up to him, he caught me in his arms. His messy bed hair indicated that he had just woken up. Mom should really be a little stricter with him. Half the day had already vanished. 
+“Father\!” Running up to him, he caught me in his arms. His messy bed hair indicated that he had just woken up. Mom should really be a little stricter with him. Half the day had already vanished. 
 
 “You really don’t know?” To be fair, I didn’t know either before today. But that didn’t stop me from glomping him. 
 
@@ -1976,7 +1894,7 @@ Karrie’s mom let out a sigh. “You two…”
 
 “What are you going to wish for?” My mom asked. My wish? 
 
-A warmth spread through the house giving it a cozy atmosphere. My father and Karrie’s were busy arguing on what a girl like me wanted to wish for. Sighs could be heard cutting through their points as they became more and more ridiculous. Karrie and Eric were busy trying to shove another spoonful of cake into themselves. And my mom, with her gentle blue eyes, was busy looking at me. 
+A warmth spread through the house giving it a cozy atmosphere. My father and Karrie’s were busy arguing on what a girl like me wanted to wish for. Sighs could be heard cutting through their points as they became more and more ridiculous. Karrie and Eric were busy trying to shove another spoonful of cake into themselves. And my mom, with her gentle purple eyes, was busy looking at me. 
 
 “My wish…” The room went quiet.
 
@@ -1990,7 +1908,7 @@ It was awkward at first, but today, on such a happy day, my mouth smiled natural
 
 “I have come here today as a messenger”
 
-“A messenger? From who?” My dad grasped the letter handed to him, flipping it over a few times. 
+“A messenger? From who?” He grasped the letter handed to him, flipping it over a few times. 
 
 “I shall take my leave then.” Grabbing the sides of her skirt, she drew a leg behind herself and bent her knees. It was a perfect curtsy. “My lord.”
 
@@ -2006,28 +1924,28 @@ The sound of something crashing reverberated through the room, signaling the end
 
 # Chapter 11: New City
 
-The steam coming from the cup of tea placed in front of me, flew gently toward the ceiling, eventually disappearing like a dream. Thrown on the dinner table was the letter Raviel had gifted my dad. The pure white piece of paper was crumpled, several creases were visible. Were you to follow those creases like a piece of origami, I would believe it would make a wonderful ball of paper. I glanced at my parents sitting at the table.
+The steam coming from the cup of tea placed in front of me, flew gently toward the ceiling, eventually disappearing like a dream. Thrown on the dinner table was the letter Raviel had gifted my father. The pure white piece of paper was crumpled, several creases were visible. Were you to follow those creases like a piece of origami, I would believe it would make a wonderful ball of paper. I glanced at my parents sitting at the table.
 
 My mom gripped her cup of tea, stroking the handle with her thumb. “Do you know why you were called back?” 
 
-“How should I know what my father is thinking?” My dad spat out. My mom’s shoulders shrank into herself, making her silhouette smaller. My fingers hurt as I tried clenching them. This scene was too familiar. My body began to prickle. 
+“How should I know what my father is thinking?” He spat out. My mom’s shoulders shrank into herself, making her silhouette smaller. My fingers hurt as I tried clenching them. This scene was too familiar. My body began to prickle. 
 
 He sighed. “Sorry, I didn’t mean to say it like that”, he said, covering mom’s hands. “It’s just… I really don't know.”
 
 “How did they even find us?” Her hands were turning white as they wrapped around the cup. “Why now?” Glistening beads began to form in the corner of her eyes. She began to tremble. 
 
-My dad stood up and wrapped her into his arms. No one said anything as he stood there, letting his wife crease up his ironed shirt. Wet stains formed where my mother’s face dug into his messed up shirt. The prickling was getting too much.
+My father stood up and wrapped her into his arms. No one said anything as he stood there, letting his wife crease up his ironed shirt. Wet stains formed where my mother’s face dug into his messed up shirt. The prickling was getting too much.
 
 I went outside.
 
-Taking in the cool winter air, my breath formed a little cloud as I exhaled. I thought happy days would follow me after my birthday party, however the nailing pain in my fingers drove my mind back to reality. The letter was like a curse, bringing with it misfortune. I hadn’t slept well, I hadn’t eaten well, and dad had gotten angrier and more irritable. My mom always hugged me, but it didn’t feel the same, she didn’t smile. 
+Taking in the cool winter air, my breath formed a little cloud as I exhaled. I thought happy days would follow me after my birthday party, however the nailing pain in my fingers drove my mind back to reality. The letter was like a curse, bringing with it misfortune. I hadn’t slept well, I hadn’t eaten well, and father had gotten angrier and more irritable. My mom always hugged me, but it didn’t feel the same, she didn’t smile. 
 
-I tried bending my fingers, only making it send a signal to my brain to stop. I put myself into the house and my parents had reached an agreement. We were to leave this town in four days.
+I tried bending my fingers, only making it send a signal to my brain to stop. I put myself back into the house and my parents had reached an agreement. We were to leave this town in four days.
 
 \*\*\*  
-“I still can’t believe it…” Karrie’s dad said. “How long are you going to be gone?”
+“I still can’t believe it…” Karrie’s father said. “How long are you going to be gone?”
 
-We were currently loading our luggage into a horse-drawn wagon outside our house. My dad had made quick work stacking the boxes.
+We were currently loading our luggage into a horse-drawn wagon outside our house. My father had made quick work stacking the boxes.
 
 “I’m betting on being back here after six or seven days, at the latest we should be back by the start of spring.”
 
@@ -2035,7 +1953,7 @@ We were currently loading our luggage into a horse-drawn wagon outside our house
 
 “Hey, what are you saying, woman.” Her husband shot back. 
 
-“My best friend is leaving for the capital, what if he never returns\! Of course I should be clingy\!” He went in front of my dad, shielding him from his wife.
+“My best friend is leaving for the capital, what if he never returns\! Of course I should be clingy\!” He went in front of my father, shielding him from his wife.
 
 “Argh\! Get out of the way, why can’t you act like this with me\!”
 
@@ -2071,11 +1989,9 @@ Their waving arms had disappeared in the horizon as I sat back down in the rocki
 
 I managed to eke out a question on how further we had to drive, to which my father simply smiled at me splayed onto my mother’s lap. We hadn’t even started, he said. I felt my eyes cloud over as my mother combed through my hair.
 
-The Guillain Kingdom had an extensive network of magic gates connecting various cities together, making it easy for people to move around the vast land of the empire. As one might suspect, it cost a considerable sum to use one of these gates. As a result, only the rich were the ones using them. In the letter, demanding my dads return, was an eight-sided token. This was used by nobles to travel around the lands anonymously. Only high-ranking nobles had one of these. Duke Nikodemus must have really wanted his son to visit. 
+The Guillain Kingdom had an extensive network of magic gates connecting various cities together, making it easy for people to move around the vast land of the empire. As one might suspect, it cost a considerable sum to use one of these gates. As a result, only the rich were the ones using them. In the letter, demanding my father’s return, was an eight-sided token. This was used by nobles to travel around the lands anonymously. Only high-ranking nobles had one of these. Duke Nikodemus must have really wanted his son to visit. 
 
-Thinking about it, doesn’t that make my dad a noble? Would that make me a noble? I did find it weird how excessive dad disliked the Baron, but I never thought more about it. Mom seemed to also sometimes behave in an elegant manner, I liked to copy her when she did that. I wonder what my grandfather will be like. 
-
-Thinking about it, doesn’t that make my dad a noble? Would that make me a noble? On television, drama series about rich conglomerates that had nothing to worry about would sometimes air. Riches, looks and bloodline, weren’t those essentially the same as this kingdom’s nobles? It didn’t sound bad.
+Thinking about it, doesn’t that make my father a noble? Would that make me a noble? On television, drama series about rich conglomerates that had nothing to worry about would sometimes air. Riches, looks and bloodline, weren’t those essentially the same as this kingdom’s nobles? It didn’t sound bad.
 
 No more would we have to concern ourselves with money and have time to do whatever we wanted. Honestly, why didn’t my parents use their status to their advantage? In hindsight, it was easy to see that we weren’t normal commoners. They would sometimes behave in a way totally different from Karrie’s parents. Not making a sound when drinking tea for example.
 
@@ -2091,7 +2007,7 @@ It was a wonder how such contrasting reactions could come from a pair of people.
 
 My parents chatted together as we traveled to the neighboring city where a gate was available. And finally, after a whole day of suffering on the seats of the wagon, we arrived at the entrance to the city.
 
-“This looks good enough.” My dad opened the door to the room we had rented for the day. The magic gate required a half day's worth of time to check our luggage and clear it for transport. Not wanting to arrive earlier than required, my dad suggested resting in this city for a day. I welcomed that thought.
+“This looks good enough.” My father opened the door to the room we had rented for the day. The magic gate required a half day's worth of time to check our luggage and clear it for transport. Not wanting to arrive earlier than required, he suggested resting in this city for a day. I welcomed that thought.
 
 The bed smelled like the sun and I closed my eyes. They were still spinning from the horrid wagon ride. I pressed down the rising feeling in my stomach. Grabbing the pillow, I dug my face in it. That was a mistake. It smelt of lavender. I coiled into myself, letting the pillow fall to the floor.
 
@@ -2101,7 +2017,7 @@ My eyes were still spinning from the horrid ride and I could only throw myself i
 
 “I don’t want to ride the wagon anymore…”
 
-My dads next words shattered that hope. “Sorry to say this, but we are still only halfway.”
+My father’s next words shattered that hope. “Sorry to say this, but we are still only halfway.”
 
 “Mom…”
 
@@ -2109,7 +2025,7 @@ My dads next words shattered that hope. “Sorry to say this, but we are still o
 
 *I didn’t want to eat anything*, was what I had previously thought as I stood there in the bakery. The smell of freshly baked bread filled the store, not letting a single visitor escape unscathed. Displayed by the counter stood countless types of pastries, ranging from simple wheat rolls to elegantly designed cakes in all types of colors. It looked just like one of those cafes I had seen in my previous life. 
 
-I shook my pocketbook and heard some coins click, ringing out like small bells. My parents appeared to be in a joyous mood today, laughing and giggling while walking around the new city. I asked to go explore on my own, which had worried my mom and elated my father. He gave me a whole four silver coins to go do whatever I wanted for today. There were a total of five silver coins in my pouch, a considerable sum for someone like me.
+I shook my bag and heard some coins click, ringing out like small bells. My parents appeared to be in a joyous mood today, laughing and giggling while walking around the new city. I asked to go explore on my own, which had worried my mom and elated my father. He gave me a whole four silver coins to go do whatever I wanted for today. There were a total of five silver coins in my pouch, a considerable sum for someone like me.
 
 The first silver coin I had gotten was still with me, accompanying me whenever I went out. The original idea was to spend it on something or the other, but like magic, the opportunity never came. Something was deliberately stopping me from using this coin, I thought. It was now my lucky charm. Did it do anything? Not really, but the thought was fun. 
 
@@ -2145,19 +2061,17 @@ I considered throwing the half eaten piece of bread at his stupid face.
 
 # Chapter 12: Eric
 
-I put the rest of the bread roll into my pocketbook. “I’m not lost.”
+I put the rest of the bread roll into my bag. “I’m not lost.”
 
-“That so?” He plopped down beside me. My golden hair fluttered in the air as I bounced off the bench. The wooden planks were bending a bit.
+“That so?” He plopped down beside me. My golden hair fluttered in the air as I bounced off the bench. The wooden planks were bending quite a bit.
 
 “I heard you will be back by spring?” I nodded. We sat staring in the same direction looking at the other people walking by. 
 
-“Are you here with your mom?” I didn’t see her with him.
+“Are you here with your mother?” I didn’t see her with him.
 
 “Yeah, we got some extra seeds from Klippel.” He pulled out a round black seed the size of my fingertip. Its outer shell felt rough as it laid limply on my palm, making a scratching sound when I poked it.
 
-“I don’t get why no one buys them.” He pulled out another one and popped it into his mouth, crunching it between his teeth. I could see a few bits of the outer shell fall out of his mouth. It looked and sounded just like eating eggshells. 
-
-“They don’t taste that bad.” He looked serious saying that. 
+“I don’t get why no one buys them.” He pulled out another one and popped it into his mouth, crunching it between his teeth. I could see a few bits of the outer shell fall out of his mouth. It looked and sounded just like eating eggshells. “They don’t taste that bad.” He looked serious saying that. 
 
 “What plant is this?”
 
@@ -2179,7 +2093,9 @@ I kicked my legs as we continued to people-watch. A man and woman were walking w
 
 “You know you are supposed to plant them right?” I remarked.
 
-I glanced through the shop windows while strolling around with Eric. Whenever something weird or strange caught my eyes he would give me a quick and concise answer. His explanations seemed to make it seem more interesting than they really were. A set of ceramic cups could be seen through the window. They were apparently the local product of this city. The cups’ color was unique only to this region as it required a type of clay that could only be harvested around here. They just looked like green tea cups to me.
+I glanced through the shop windows while strolling around with Eric. Whenever something weird or strange caught my eyes he would give me a quick and concise answer. His explanations seemed to make it seem more interesting than they really were. 
+
+A set of ceramic cups could be seen through the window. They were apparently the local product of this city. The cups’ color was unique only to this region as it required a type of clay that could only be harvested around here. They just looked like green tea cups to me.
 
 Eric would give me a long explanation each time I pointed to an object. He seemed to take his apprenticeship seriously as he knew a little about everything. I wondered how much he had studied these past days. I started pointing at whatever caught my eyes.
 
@@ -2191,7 +2107,7 @@ Eric would give me a long explanation each time I pointed to an object. He seeme
 
 “Eric, I really don’t remember, please.” I pointed to an orange object, feeling my mouth twitch as I begged him.
 
-“At least try not to smile while saying that…” He sighed. “These are called carrots, a staple food in our kingdom.”
+“At least try not to grin while saying that…” He sighed. “These are called carrots, a staple food in our kingdom.”
 
 “Is that so? What about these yellow things?”
 
@@ -2209,7 +2125,7 @@ I skipped around the different shops and stalls all the while dragging along Eri
 
 The gaggle of people was centered around something. Applause and excited voices could be heard ringing as I tried to get a glimpse of whatever that had them this excited. Standing between two adults, I glanced under their armpits.
 
-Mint green hair reminiscent of the tea cups I had seen blew gently in the air. It looked almost to turn blue against the backdrop of the sky. A pair of soft round eyes, the color of fresh summer leaves, looked flustered as she held the hands of an old woman kneeling before her. She looked like a doe clad in pastel dress as she tried to help the elderly woman off the dirty ground. 
+Mint green hair reminiscent of the tea cups I had seen blew gently in the air. It looked almost to turn blue against the backdrop of the sky. A pair of soft round eyes, the color of the sky, looked flustered as she held the hands of an old woman kneeling before her. She looked like a doe clad in a pastel dress as she tried to help the elderly woman off the dirty ground. 
 
 A young man stood behind her, diagonal to the side, with his hands behind his back. He had an impassioned look standing guard behind her, the scabbard hanging on his hip indicating his work.
 
@@ -2217,9 +2133,7 @@ A young man stood behind her, diagonal to the side, with his hands behind his ba
 
 “My clothes getting dirty is nothing in comparison to what you have done for me. I must show you my gratitude\!”
 
-“P-please get up, I didn’t help you to get your gratitude\!” She babbled.
-
-“A simple thanks is enough for me.” An angelic smile formed on the young girl’s face, she looked just like how my mom often looked at me. I could feel the affection flowing from her gaze standing all the way over here.
+“P-please get up, I didn’t help you to get your gratitude\!” She babbled. “A simple thanks is enough for me.” An angelic smile formed on the young girl’s face, she looked just like how my mom often looked at me. I could feel the affection flowing from her gaze standing all the way over here.
 
 The old woman broke into tears as she looked up at her.
 
@@ -2227,7 +2141,7 @@ The old woman broke into tears as she looked up at her.
 
 A voice called from the crowd. “She did it again\!”
 
-“I can’t believe she used healing magic on her.”
+“I can’t believe she used divine magic on her.”
 
 “She did it for free too.”
 
@@ -2239,19 +2153,17 @@ Someone in the crowd exclaimed. “I can’t believe it\!”
 
 “Who is she?”
 
-“She’s a goddess\!”
+“She’s a saint\!”
 
 Resounding cheers filled the area we had been gathering in. The old woman lifted her wooden cane high above her head, stretching it into the sky. The stick grabbed our attention as it went higher and higher. I could feel the guard putting his hand above the hilt of his sword, until we all saw it flying downwards at an amazing speed before stopping upon impacting her bent knee. It broke cleanly in half. Silence filled the air.
 
 My mouth went wide as I tried to register in my head what had just happened. The girl seemed to be in the same vein as me standing there cupping her mouth. The young man standing a step behind her simply let out a sigh of relief before turning back into an impassioned statue. The silence broke when the old woman roared. 
 
-“That felt good\!”
+“That felt good\!” The crowd joined her roar and I could hear Eric beside yelling something or the other. 
 
-The crowd joined her roar and I could hear Eric beside yelling something or the other. 
+I saw for the first time how divine magic was supposed to look like as she healed some other people from the crowd. A yellow magic circle formed from her palmed out hands as she focused her breathing. A few seconds later the person being injected let out a really blinding flash of light. It must have felt good as all of them had exclaimed their relief. 
 
-I saw for the first time how healing magic was supposed to look like as she healed some other people from the crowd. A yellow magic circle formed from her palmed out hands as she focused her breathing. A few seconds later the person being injected let out a really blinding flash of light. It must have felt good as all of them had exclaimed their relief. 
-
-The girl continued to treat the crowd, healing whatever illness or ailment had plagued them. She didn’t seem troubled at all, apart from the people kneeling down in gratitude, as she went through all of them. She simply gave them a gentle smile as her hair shook with the wind.
+The girl continued to treat the crowd, healing whatever illness or ailment had plagued them. She didn’t seem troubled at all, apart from the people kneeling down in gratitude, she went through all of them. Simply gave them a gentle smile as her hair shook with the wind.
 
 The crowd had long dispersed and only the two of them remained, she sat on a bench while he watched over her. They were saying something to each other but stopped when they noticed us walking over to them. 
 
@@ -2259,13 +2171,13 @@ The crowd had long dispersed and only the two of them remained, she sat on a ben
 
 “I’m afraid we are currently taking a break.” The young man said.
 
-“Don’t be like that Leon, I’m really fine.” He simply grunted in reply.
+“Don’t be like that Leon, I’m really fine.” He grunted in reply.
 
 “I’m Esther, I’m currently visiting this city. Oh, and I’m fourteen.” I said my perfect introductory line. The man furrowing his eyebrows didn’t bother me at all. 
 
 “She’s still using that introduction?” I could hear Eric mutter behind me before also introducing himself. It was different from how I said it but it would do. 
 
-The girl let out a chuckle, her sweet voice tickled my ears a bit. “My name is Lavenza, I’m currently traveling with this grumpy boy to see the world.” She gestured to the adult-looking boy. “And I’m sixteen”. Her pure white teeth blinded my eyes as she smiled, making me almost shield my eyes. She must have been a noble as I stared at her elegant sense of air.
+The girl let out a chuckle, her sweet voice tickled my ears a bit. “My name is Lavenza, I’m currently traveling with this grumpy boy to see the world.” She gestured to the adult-looking boy. “And I’m fifteen”. Her pure white teeth blinded my eyes as she smiled, making me almost shield my eyes. 
 
 “Did you want to ask me something, Esther?”
 
@@ -2273,7 +2185,7 @@ The girl let out a chuckle, her sweet voice tickled my ears a bit. “My name is
 
 “Oh, more than I can count.”
 
-“Have you seen this seed before?” I decided to help out Eric with his appointment.
+“Have you seen this seed before?” I decided to help out poor Eric with his appointment.
 
 She held it in her hand giving it a look. “What seed is this?”
 
@@ -2295,23 +2207,19 @@ The boy sighed. “Give it.” He put the round seed he got from her. A crunchin
 
 “I could do without the shell though.” 
 
-Lavenza took another seed from the ecstatic Eric. 
+Lavenza took another seed from the ecstatic Eric. “Oh wow\! It really does taste like raisins.” 
 
-“Oh wow\! It really does taste like raisins.” 
+“Esther, now you really have to try one.” Eric said.
 
-“Esther, now you really have to try one.”
-
-“No thanks, you have some bits stuck in your teeth by the way.”
-
-Eric began poking at his teeth as I told him where to put his finger.
+“No thanks, you have some bits stuck in your teeth by the way.” He began poking at his teeth as I told him where to put his finger.
 
 “Ha ha\! You two really make a funny pair.”
 
-“Really?” I couldn’t see the connection.
+“Really?” I couldn’t see what was funny.
 
 “Oh I know\!” She said, “Let’s be friends\!”
 
-And so Lavenza and I became friends with the healing girl and her taciturn guard. We chatted while I sat with her while the two boys stood. They seemed to surprisingly vibe well together as Leon began showing off his sword. 
+And so Eric and I became friends with the healing girl and her taciturn guard. We chatted while I sat with her while the two boys stood. They seemed to surprisingly vibe well together as Leon began showing off his sword. 
 
 “Lavenza, you seem like a powerful healer.” I asked her. 
 
@@ -2319,21 +2227,19 @@ And so Lavenza and I became friends with the healing girl and her taciturn guard
 
 “Has your healing not worked before?” 
 
-“It hasn't. Why are you asking?” 
+“It hasn't. Why, is something the matter?” 
 
-I pulled off the glove on my left hand letting it feel the cool air for the first time in a while. Her mouth opened a little and I could see Leon twitch his forehead a little standing there with Eric, he didn’t react. 
+I pulled off the glove on my left hand letting it feel the cool air for the first time in a while. Her mouth opened a little and I could see Leon twitch his forehead standing there. Eric didn’t react. 
 
 It was expected as the flesh squirming around my once-crushed fingers were bulging like waves with circles in its epicenter. My marred hand really looked disgusting as I tried fully bending my fingers. It felt like nails stabbing into it when my bend reached its full potential. I wanted to fix my hand, if not for my mom’s sake. I could still remember how she looked when she saw my disfigured hand for the first time.
 
-“Do you think you can heal my hand? I have three silvers if you want.” It was beyond low for employing a priest or a mage who could heal, still it was all I had right now.
+“Do you think you can heal my hand? I have five silvers if you want.” It was beyond low for employing a priest or a mage who could heal, still it was all I had on me right now.
 
 “Don’t you worry Esther.” She held my hand. “I will try my best, no, I *will* do my best\! We’re friends\!”. 
 
-She began focusing and a golden circle appeared over my left hand, the circle looked familiar. And after a while, nothing happened. No bright lights, no nothing. 
+She began focusing and a golden circle appeared over my left hand, the circle looked familiar. And after a while, nothing happened. No bright lights, no refreshing feeling, no nothing. 
 
-“Huh? What’s happening?” I didn’t really get my hopes up.
-
-“Let me try again.” Nevertheless, I felt a bit disappointed as I saw the golden circle appear again. I already knew healing magic didn’t work this body.
+“Huh? What’s happening?” I didn’t really get my hopes up. “Let me try again.” Nevertheless, I felt a bit disappointed as I saw the golden circle appear again. I already knew divine magic didn’t work on this body.
 
 “It’s fine, Lavenza.” I quickly put my glove back on. “I expected the outcome.”
 
@@ -2345,9 +2251,7 @@ She began focusing and a golden circle appeared over my left hand, the circle lo
 
 “Esther, wait-”
 
-“Let’s meet again should the opportunity rise.” I began walking.
-
-Eric was apologizing or something before I heard his brisk footsteps come up behind me. I continued walking while he followed.
+“Let’s meet again should the opportunity rise.” I began walking. Eric was apologizing or something before I heard his brisk footsteps come up behind me. I continued walking while he followed.
 
 “Esther, are you okay?”
 
@@ -2365,17 +2269,13 @@ Eric was apologizing or something before I heard his brisk footsteps come up beh
 
 “Let go\!” I yanked my arm back, facing him. It hurt.
 
-“Please talk to me, Esther.” He had a stupid expression plastered on his face.
+“Please talk to me, Esther.” He had a stupid expression plastered on his face. “What’s wrong?”
 
-“What’s wrong?”
-
-“I don’t know\!” I shot back at him. I didn’t know what part of my body that hurt.
+“I don’t know\!” I shot back at him. I didn’t know what part of my body that hurt. My hand? My arm? My heart? It just hurt.
 
 “Let’s just calm down, okay?”
 
-“Shut up\!”
-
-I glared at him, glared at his red hair and glared at his brown eyes. Don’t you look at me like that, Eric. 
+“Shut up\!” I glared at him, glared at his red hair and glared at his green eyes. Don’t you look at me like that, Eric.  
 
 He took a step toward me. “Breathe, Esther.”
 
@@ -2387,11 +2287,7 @@ He took another step.
 
 “You’re stupid\!”
 
-“I’m the most stupid person you know, take a deep breath, Esther.”
-
-He put his hand over my eyes, covering them. 
-
-“Just breathe.”
+“I’m the most stupid person you know, take a deep breath, Esther.” He put his hand over my eyes, covering them. “Just breathe.”
 
 I didn’t want to feel this way
 
@@ -2399,9 +2295,9 @@ I didn’t want to feel this way
 
 “I know.”
 
-“I was really scared…”
+“I want to use my hand…”
 
-“You’re safe now.”
+“That’s only natural.”
 
 I stood there while Eric continued to shield my eyes. He didn’t say anything as I felt myself calm down. We must have been standing there for a while.
 
@@ -2409,19 +2305,13 @@ I stood there while Eric continued to shield my eyes. He didn’t say anything a
 
 “Have you calmed down?” I could taste something salty sliding down my face as it fell into my mouth.
 
-“*Hic*, Yeah…”
-
-My body shook from the sudden hiccups.
+“*Hic*, Yeah…” My body shook from the sudden hiccups.
 
 “Can I move my hand now?”
 
-“Not yet…”
+“Not yet…” It felt calming not being able to see anything.
 
-It felt calming not being able to see anything.
-
-“I was going to give this to you earlier but so much happened.” I could hear him take something out of his bag.
-
-“I’m gonna move my hand now okay?”
+“I was going to give this to you earlier but so much happened.” I could hear him take something out of his bag. “I’m gonna move my hand now okay?”
 
 I stayed silent as my eyes took in the bright light outside. A mass of yellow petals bloomed in front of my eyes.
 
@@ -2462,21 +2352,15 @@ I woke up laying in bed, did I pass out? Where’s Eric? I looked around and saw
 
 She opened her eyes as I fumbled around on the bed. 
 
-“Oh, are you okay?” She immediately began fretting over me, she took my temperature with the back of her hand. 
-
-“Good, no fever.” She nodded to herself.
+“Oh, are you okay?” She immediately began fretting over me, taking my temperature with the back of her hand. “Good, no fever.” She nodded to herself.
 
 “Mom, I feel fine.”
 
-“Sorry Esther, but I really don’t believe you right now.” She looked concerned. 
-
-“Who knows what would have happened if Eric wasn’t with you? Do you know how shocking it was when we saw him carrying you?” She patted my head. 
-
-“What happened?” 
+“Sorry Esther, but I really don’t believe you right now.” She looked concerned. “Who knows what would have happened if Eric wasn’t with you? Do you know how shocking it was when we saw him carrying you?” She patted my head. “What happened?” 
 
 “Where’s Eric?” I saw my gloves on the nightstand.
 
-“He left saying he had to go with his mother.” I see. “They left yesterday for Barre.”
+“He left saying he had to go with his mother. They left yesterday for Barre.”
 
 “Yesterday? What about the magic gate?” I needed to get ready quickly.
 
@@ -2484,9 +2368,7 @@ She opened her eyes as I fumbled around on the bed.
 
 “I’m sorry…”
 
-“Hush, you did nothing wrong.” She held me in her bosom. It felt nice.
-
-“Can you tell me what happened? Eric didn’t say much.”
+“Hush, you did nothing wrong.” She held me in her bosom. It felt nice. “Can you tell me what happened? Eric didn’t say much.”
 
 “What did he say?”
 
@@ -2496,11 +2378,7 @@ She opened her eyes as I fumbled around on the bed.
 
 “He seems like a good boy.”
 
-“He is.”
-
-I told her what had happened yesterday. How I coincidentally met Eric, how we went around the city and found an interesting pair that we befriended. 
-
-“... I don’t remember what happened afterwards.” I lied to her.
+“He is.” I told her what had happened yesterday. How I coincidentally met Eric, how we went around the city and found an interesting pair that we befriended. 
 
 “Really?” She seemed surprised about something.
 
@@ -2522,13 +2400,11 @@ I told her what had happened yesterday. How I coincidentally met Eric, how we we
 
 Did I have fun? I thought back on my memories. It had been fun until I, uh… got angry.
 
-“Come here, there’s no need to be embarrassed.” She nuzzled against me.
-
-“Should I tell your father?”
+“Come here, there’s no need to be embarrassed.” She nuzzled against me. “Should I tell your father?”
 
 “Mom, it wasn't a date.”
 
-Father had at first also looked concerned when he saw me laying in bed. But mom told him what happened yesterday and he got concerned for another reason. 
+Father visited me with a concerned expression. But mom told him what happened yesterday and he got concerned for another reason. 
 
 “That rascal…”
 
@@ -2538,7 +2414,7 @@ Father had at first also looked concerned when he saw me laying in bed. But mom 
 
 “What happened to the magic gate?”
 
-“Oh right”, my dad remarked, “we are leaving tomorrow morning. So you just rest for today, I’m grounding you.
+“Oh right”, my father remarked, “we are leaving tomorrow morning. So you just rest for today, I’m grounding you.
 
 “What?” 
 
@@ -2548,13 +2424,13 @@ Father had at first also looked concerned when he saw me laying in bed. But mom 
 
 She pulled out a book. “I bought you a souvenir.” 
 
-“The memoirs in the capital.” It was a book written like a someone’s diary detailing the most popular spots one had to see. 
+“The memoirs in the capital.” It was a book written like someone's diary detailing the most popular spots one had to see. 
 
 “This looks expensive…”
 
-“You are supposed to say thank you.” Dad said.
+“You are supposed to say thank you,” Father said.
 
-I smiled. “Thanks mom, I love it\!”
+I smiled. “Thanks mom, I love it.”
 
 I had read halfway through the book when my mom entered the room. The morning sun was now at its apex.
 
@@ -2564,9 +2440,7 @@ I had read halfway through the book when my mom entered the room. The morning su
 
 “They look like the people you described earlier.”
 
-How did they find me? Luckily my pyjamas had been changed earlier making me look well dressed enough to stroll the streets. Mom had insisted that even when loafing in the room all day, one should still clothe themselves. 
-
-Sitting at a table 
+Lavenza and Leon? How did they find me? Luckily my pyjamas had been changed earlier making me look well dressed enough to meet with them. Mom had insisted that even when loafing in the room all day, one should still clothe themselves. 
 
 The inn doubled as both a place to sleep and to eat. On the second floor, guests could use the numerous rooms all lined up by the walls. And on the first floor, food could be ordered from the quaint diner. The innkeeper and his wife were the only two working the inn.
 
@@ -2578,9 +2452,9 @@ The inn doubled as both a place to sleep and to eat. On the second floor, guests
 
 “You too look exactly the same\!” She chirped happily. “Leon, look again\!”
 
-“Lavenza, you are being rude again.”
+“Lavenza, you are being rude.”
 
-“Oh.”
+“Oh.” She slumped her shoulders.
 
 “So what are you two doing here, I don’t think I told you where I was staying at.”
 
@@ -2592,9 +2466,9 @@ She explained that after carrying me back, he had found the two of them strollin
 
 “What do you mean?”
 
-“You looked fine before I tried to use healing magic. Did you become unwell from that?”
+“You looked fine before I tried to use divine magic. Did you become unwell from that?”
 
-In some sense it did, however the real reason was that my emotions had run rampant. I don’t really understand why I reacted that way, it just did. It didn’t feel good.
+In some sense it did, however the real reason was that my emotions had run rampant. I don’t really understand why I reacted that way, I just did. It didn’t feel good.
 
 “I feel fine now.”
 
@@ -2602,15 +2476,13 @@ In some sense it did, however the real reason was that my emotions had run rampa
 
 Shivers went down my spine when I saw the two of them apologize, Leon also had also bent his head. This must be how Lavenza felt when seeing the kneeling people.
 
-“You shouldn’t bow your head that easily”, I said. “Aren’t you a noble?”
+“You shouldn’t bow your head that easily”, I said. “Aren’t you a noble?” Did they really need to look that dumbfounded? 
 
-Did they really need to look that dumbfounded? “How did you know?”
+“How did you know?”
 
 “It was obvious with your appearance”, I turned to Leon. “You even have a bodyguard protecting you.” 
 
-Nobles never traveled alone, my dad had said. It was to flaunt to the commoners that they were worth more. My mother argued back that they had to travel in a group because there were many angry and dangerous people willing to do anything, especially to noblewomen. My mom looked uncharacteristically angry when she told him that, to which my dad had to reluctantly accept defeat.
-
-Lavenza looked flustered and Leon just sighed.
+Nobles never traveled alone, my father had said. It was to flaunt to the commoners that they were worth more. My mother argued back that they had to travel in a group because there were many angry and dangerous people willing to do anything, especially to noblewomen. She looked uncharacteristically angry when she told him that, to which my father had to reluctantly accept defeat. Lavenza looked flustered and Leon just sighed.
 
 “It hasn’t even been that long before I got caught…”
 
@@ -2622,15 +2494,13 @@ Lavenza looked flustered and Leon just sighed.
 
 “You’re surprisingly nonchalant about this, Esther”, Leon said. “Commoners are typically afraid to talk to nobles.”
 
-“The noble ruling our town happens to be a decent person. You can often spot him in town talking to the townspeople.”
+“The noble ruling our town happens to be a not so scary person. You can often spot him in town talking to the townspeople.”
 
-“Really? That’s unusual…”, Lavenza added. 
+“Really? That’s unusual…” Lavenza added. 
 
-“Oh, that’s right. My father is also a noble.” The two of them looked stunned. Nice I even managed to get Leon.
+“Oh, that’s right. My father is also a noble.” The two of them looked stunned. Nice I even managed to get Leon. “Which makes me a noble too. I think.” 
 
-“Which makes me a noble too. I think.” 
-
-Lavenza was about to open her mouth when the door to the inn creaked open. It was my dad.
+Lavenza was about to open her mouth when the door to the inn creaked open. It was my father.
 
 “Are you out and walking about, Esther?” He walked up to our table. “You must be my daughter’s new friends, please take good care of her.” A handsome smile appeared in front of us. I didn’t really notice this but he was rather tall, standing half a head higher than even the tall Leon. His forearm muscles bulged, showing off well-defined veins as he held a bag. It looked heavy.
 
@@ -2640,19 +2510,19 @@ They turned to me, unsure what to say in this situation. I just put my finger in
 
 “Of course”, Leon took a pause in his sentence, “sir.”
 
-“Haha, you befriended some energetic kids again.” He patted my head. “Well, let me make myself scarce, you guys have fun.” The stairs creaked under the combined weight of my dad and his bag full of stuff. 
+“Haha, you befriended some energetic kids again.” He patted my head. “Well, let me make myself scarce, you guys have fun.” The stairs creaked under the combined weight of my father and his bag full of stuff. 
 
 Silence filled the room where only the three of us used. The other guests had already started their day or were sleeping in. 
 
 “What\!?” Lavenza exclaimed. “You’re a noble too?”
 
-“My father is a noble. I found out about a week ago.”
+“I found out about a week ago.”
 
 “So the reason you are visiting the capital is…”
 
 “Yup, we're going to visit my grandfather.”
 
-“Sounds complicated…” Lavenza threw herself over the table. “It’s not easy being a noble. I just want to have fun and travel”, she babbled.
+“Sounds complicated…” Lavenza threw herself over the table. “It’s not easy being a noble. I just want to have fun and travel,” she babbled.
 
 “Interesting”, Leon said, “Is Eric a noble too?”
 
@@ -2680,7 +2550,7 @@ My mom told them that I was often feeling unwell and had to rest adequately. I h
 
 “Wow, a magic gate. You should look forward to it, it's pretty amazing\!”
 
-“You have used one before?” My dad asked.
+“You have used one before?” My father asked.
 
 “O-oh, I read about it in a book\!”
 
@@ -2692,21 +2562,20 @@ My mom told them that I was often feeling unwell and had to rest adequately. I h
 
 “It was nothing\! Besides, it didn't work…”
 
-“I see”, dad remarked. “She must have shown you two. Thank you for still accepting her.” My dad looked sad.
+“I see”, my father remarked. “She must have shown you two. Thank you for still being with her.” He looked sad.
 
 “She’s been a good friend to us”, Leon said, nodding his head.
 
-“Ho ho, you two really are respectful. Are you perhaps-”
-
-My mom smacked my fathers arm, sending him a silent stare before turning to them.
+“Ho ho, you two really are respectful. Are you perhaps-” My mom smacked my fathers arm, sending him a silent stare before turning to them.
 
 “You two must still be hungry, here have some more, doesn’t it taste better the more people there are?”
 
 “It really does\!” Lavenza nodded enthusiastically.
 
-With the plates wiped clean and ample time had passed, Lavenza and Leon took their leave. She promised to say hello the next time we met and gave me her handkerchief. It felt soft beneath my gloves and a crest was embroidered in the corner. I wondered what house she came from as I waved back at her shrinking image. Leon didn’t even look back once.
+With the plates wiped clean and ample time had passed, Lavenza and Leon took their leave. She promised to say hello the next time we met and gave me her handkerchief. It felt soft beneath my gloves and a crest was embroidered in the corner. A white leopard. I wondered what house she came from as I waved back at her shrinking image. Leon didn’t even look back once.
 
-It was finally time as I checked my pocketbook. Money, check. Lucky charm, check. Seeds from Eric, check. Half-eaten piece of bread, check. I threw that piece of bread as far as I could between the trees. Now I had to turn my pocketbook upside down to get all the stupid crumbs out.
+\*\*\*  
+It was finally time as I checked my bag. Money, check. Lucky charm, check. Seeds from Eric, check. Half-eaten piece of bread, check. I threw that piece of bread as far as I could between the trees. Now I had to turn my bag upside down to get all the stupid crumbs out.
 
 We stood in line waiting our turn to use the magic gate. I could hear it wobble as the surface of the building sized mirror warbled. It looked like the surface of a lake if something constantly disturbed it. 
 
@@ -2716,7 +2585,7 @@ We stood in line waiting our turn to use the magic gate. I could hear it wobble 
 
 “Last name?”
 
-My dad went up to him and showed the token he had received from Raviel. It ensured anonymity and was only used by a select few high-ranking nobles.
+He went up to him and showed the token he had received from Raviel. It ensured anonymity and was only used by a select few high-ranking nobles.
 
 “R-right this way, sir\!”
 
@@ -2724,15 +2593,13 @@ My dad went up to him and showed the token he had received from Raviel. It ensur
 
 “It should feel like taking a swim, no need to be worried.”
 
-“But dad”, I said. 
-
-“I’ve never taken a swim before.”
+“But father, I said. “I’ve never taken a swim before.”
 
 “Oh right.”
 
 I felt something push me as my body fell forwards into the shimmering surface.
 
-“See you on the other side\!” I heard my dad say.
+“See you on the other side\!” I heard my Gale say.
 
 # Chapter 14: The estate
 
@@ -2920,7 +2787,7 @@ I didn’t know who was consoling whom as my father carried her to the couch. My
 
 “This is your room Miss, do you have any questions?”
 
-The room was as large as our house in Barre. It had a big bed, a big closet and a big mirror over the desk. Long blond hair and puffy blue eyes. I had gotten used to seeing this face whenever something shiny reflected it, however today it looked completely bizarre.
+The room was as large as our house in Barre. It had a big bed, a big closet and a big mirror over the desk. Long blond hair and puffy purple eyes. I had gotten used to seeing this face whenever something shiny reflected it, however today it looked completely bizarre.
 
 The garden sat outside the big window situated on the third floor. Patches of grass were beginning to sprout turning the lawn green. In between the square and circle bushes, some flowers were looking up at me. The flowy curtains did a fine job of blocking them off.
 
@@ -2988,7 +2855,7 @@ I stood in front of a mirror double my size. Did it really have to be that tall?
 
 A seamstress flitted around me, taking my dimensions with a string as she made me spin around while lifting my arms up and down. I was a doll today. Excited chatter filled the room as her assistant took note of my numbers. 
 
-“Golden hair and azure blue eyes, I think this design fits her the best.” She held a drawing of a dress in her hand. The skirt bloomed outwards stopping a bit below the knees. A design intended for young ladies like me, she said. It looked pretty.
+“Golden hair and amethystine purple eyes, I think this design fits her the best.” She held a drawing of a dress in her hand. The skirt bloomed outwards stopping a bit below the knees. A design intended for young ladies like me, she said. It looked pretty.
 
 “But what about this one?” Her assistant showed another drawing. This one had more frills and a longer skirt, stopping at the ankles. It also looked pretty.
 
@@ -3096,7 +2963,7 @@ Alice could feel her stomach turn in jealously. It was an unwritten rule to not 
 
 The morning that sir Alden had announced that guests would come, she had taken a lot of time to prepare the rooms. Even asking the chatty gardener for some flowers to decorate them. 
 
-‘Please remove them.’ Agh\! She wanted to tear her own hair after hearing that. She didn’t even comment on them, hell, she didn’t even change her face. The same face that had been plastered on her as if a statue for the past few days. Her blue eyes were staring. At what? Alice was about to turn her head when she suddenly moved. 
+‘Please remove them.’ Agh\! She wanted to tear her own hair after hearing that. She didn’t even comment on them, hell, she didn’t even change her face. The same face that had been plastered on her as if a statue for the past few days. Her purple eyes were staring. At what? Alice was about to turn her head when she suddenly moved. 
 
 “Good morning, my name is Esther and I am fourteen.”
 
@@ -3108,7 +2975,7 @@ She had initiated a conversation first with a peculiar greeting, something resem
 
 “...”
 
-That was it? ‘I see’, It was impressive how uninterested she was. Hadn’t this girl just been some commoner until recently? Even Alice wanted to have a personal maid of her own that would do all of her biddings. She was just staring at her. Staring with her eerie blue eyes. 
+That was it? ‘I see’, It was impressive how uninterested she was. Hadn’t this girl just been some commoner until recently? Even Alice wanted to have a personal maid of her own that would do all of her biddings. She was just staring at her. Staring with her eerie purple eyes. 
 
 Then she opened her mouth again. “Alice, do you know what a shopping center is?”
 
@@ -3190,9 +3057,17 @@ The three of us left the room, leaving my grandmother to fend for herself with t
 
 “She does look like a lovely girl”, said mom.
 
-“Yeah, it’s fun talking to her.” Although something interesting happened later that day.
+“Yeah, it’s fun talking to her.” Although something happened later that day. 
 
-Out of curiosity as no one had told me yet what her accident was, I asked Alice about it. 
+She stopped looking me in the eyes. In fact, did she ever do that? All the images I had of Alice were of her either staring between my eyebrows or talking with her head bowed. It was starting to get irksome. 
+
+I noticed everything she did after that day. She was moving slower and slower. When I called for her, she would only show up at the last possible reasonable moment. I was waiting more for her than she did for me. 
+
+Asking for her opinion was useless as she only replied with affirmatives. Golden circles appeared more than half the times she answered of course. Irritating. Her face was starting to get irritating. Like something forgotten, each and everything she did irritated me. 
+
+The only time she felt alive these days was when she decorated my hair with dazzling gems or helped me put on the dresses.
+
+Out of curiosity as no one had told me yet what the Duchess’ accident was, I asked Alice about it. 
 
 “The Duchess’ accident? I can’t say I know about it.” Beam\! The golden circle appeared across her mouth. 
 
@@ -3200,11 +3075,11 @@ Out of curiosity as no one had told me yet what her accident was, I asked Alice 
 
 “I wasn’t at the estate that day, my apologies.” Another lie. 
 
-Asking the other maids and servants the same questions gave the same result. None of them appeared to know what had happened that day. None of them besides Alice.
+Asking the other maids and servants the same questions gave the same result. None of them appeared to know what had happened that day. None of them besides Alice. 
 
 Mom tucked me in bed while I grumbled whatever this meant. How come none of them knew what had happened to the second most important person in the duchy? It didn’t make sense.
 
-“What happened to grandmother?” She stared into the air. “The official stance is that she fell down the stairs, but your father and I have a different opinion.” 
+“What happened to grandmother?” She stared into the air. “No one really knows, she was just found at the end of the stairs.”
 
 “What do you think?”
 
@@ -3224,7 +3099,7 @@ Killing wasn’t something I particularly enjoyed, it just happened. A feeling, 
 
 The failure last year must have shocked that feeling out of my body as my heart felt fine besides the time I overexerted myself. I could live this life as the goddess intended, without killing anyone.
 
-I could wake up to my mom greeting me with her gentle smile and father telling a joke or an interesting story. But like our lives will, that feeling came to an end. Today my heart began to suffocate again.
+I could wake up to my mom greeting me with her gentle smile and father telling a joke or an interesting story. But like our lives eventually will, that feeling came to an end. Today my heart began to suffocate again.
 
 I remember the first time I felt it. Every time on the way back from school, there was something that always caught my attention. It was some old woman sleeping on the ground. Everyday, everytime, just like how the hands on a clock always turned, she was always lying there on that piece of tattered cardboard. The same dirty clothes, the same dirty paper cup and the same disgusting hunched silhouette. 
 
@@ -3236,6 +3111,7 @@ It was remarkable how much better it felt with her gone. Sure, her shocked expre
 
 A week after I killed her, Ann pulled me to the side to ask me something.
 
+\*\*\*  
 Seeing Alice’s sleeping visage made me finally remember where I had seen her face before. She was the first person I killed. Her overgrown dirty hair had hidden her face, but that sleeping position would never leave my memory. Is this your doing Goddess? Why do the ones I killed keep appearing before me?
 
 As if begging me, the arrow in my room had hovered in the air with no indication of dimming itself, giving me no chance to sleep even if I wanted to. 
@@ -3248,9 +3124,7 @@ I had seen my fair share of these types of letters. Covered in hearts and elegan
 
 The letter read like a typical love letter, asking about the weather, his feelings and her feelings. There was even a little poem about her beautiful hair. Although the hair color didn’t match Alice’s. Actually, the letter wasn’t even addressed to her, it was to someone named Marianne. 
 
-Should I just kill her again right here and now? My heart felt like exploding the longer I stayed here. Planning a murder wasn’t hard. One, decide on the muder weapons. Two, find a secluded space. And finally, three, try not to let the Goddess interfere at the delicate moment. 
-
-But how would I go about killing her? The goddess wouldn't let me kill her. She wouldn’t let me kill anything for that matter. A fly buzzed around my room a few days ago. Smacking it had no effect as I saw the thing fly away. It was now laying dead in the box I trapped it in.
+Should I just kill her again right here and now? My heart felt like exploding the longer I stayed here. Planning a murder wasn’t hard. One, decide on the murder weapon. Two, find a secluded space. And finally, three, try not to let the Goddess interfere at the last delicate moment. 
 
 But how would I go about killing her? I couldn’t kill anything for that matter. A fly had buzzed around my room a few days ago, smacking the thing had no effect as it simply flew away. Opening the box I trapped it in, it was laying there dead.
 
@@ -3563,7 +3437,7 @@ With the lightning hitting dangerously close to where he was, he spotted somethi
 
 “Esther\!” He found her.
 
-“Oh, daddy\!” She was smiling brightly at him. In clothes that were a smidge better than his wife’s, all soaked to her bones, his daughter was standing in between the trees smiling at him. Her crescent moons could be seen clearly each time a new roar filled the sky.
+“Oh, dad\!” She was smiling brightly at him. In clothes that were a smidge better than his wife’s, all soaked to her bones, his daughter was standing in between the trees smiling at him. Her crescent moons could be seen clearly each time a new roar filled the sky.
 
 \*\*\*  
 Karrie would always say that my mom was several times better than her own. I agreed each time because it was simply true. Victoria was prettier with her unblemished fair skin and silky smooth hair like golden strands. She wasn’t too thin nor too thick, and she had a gentle voice and face. This didn’t mean that Karrie’s mom was some hideous person or something, she was just, you know, average.
@@ -3725,7 +3599,7 @@ He had furrowed his eyebrows when Esther told him that she didn’t like the sta
 
 Gale thought of the times when they visited the church together. Esther, without fail, would always frown whenever she stepped into the building, and on rare occasions, he could see her glaring at the statue while grinding her teeth. It was a total opposite of her expression that night.
 
-He had never seen such a bright smile from his daughter, she even called him daddy, something she hadn’t done for a long time. He didn’t want to admit it but it was eerie. It bothered him. Not a single child would be smiling in that situation. Especially when he investigated the church where another mana trail was leading him. Perhaps the physician was right.
+He had never seen such a bright smile from his daughter, she even called him dad, something she hadn’t done for a long time. He didn’t want to admit it but it was eerie. It bothered him. Not a single child would be smiling in that situation. Especially when he investigated the church where another mana trail was leading him. Perhaps the physician was right.
 
 \*\*\*  
 My body ached. Don’t tell me I died again. A nailing pain shot up from my left hand.   
@@ -4302,7 +4176,7 @@ The Duke held his wife’s hand. “Rosalynn, how are you feeling?” His look w
 
 She caressed his face. “I’m fine, Garius.” I understood why that maid always giving me candy said that one line, ‘a person that says they feel fine never feels fine’. Sitting on the double-sized bed, she did not look fine at all.
 
-Haggard hair that had once shone like silk was now sticking all over the place, each of the loose strands having a mind of their own on how to make it look the most messy. Her once pink cheeks were sunken in like a sick person, to be fair she had been sick, but the point still stands. It was completely different than how she was depicted on hair portrait. That person had brilliant blue eyes, the Duchess in front of me had cloudy gray eyes that looked like marble. 
+Haggard hair that had once shone like silk was now sticking all over the place, each of the loose strands having a mind of their own on how to make it look the most messy. Her once pink cheeks were sunken in like a sick person, to be fair she had been sick, but the point still stands. It was completely different than how she was depicted on herportrait. That person had brilliant blue eyes, the Duchess in front of me had cloudy gray eyes that looked like marble. 
 
 “How long did I sleep?”
 
@@ -4428,27 +4302,27 @@ A soft breeze flying through the gazebo ruffled my hair. The seasons were finall
 
 # Chapter 24: Past 
 
-It was on a morning when birds chirped their little songs up in their cozy nests, the crickets filled the garden with a pleasant low hum, and the horses pulling the carriage snorted into the refreshing air. A little girl ran up to the Duchess and pointed at the thing behind her.
+On a morning when birds chirped their little songs up in their cozy nests, the crickets filled the garden with a pleasant low hum, and the horses pulling the carriage snorted into the refreshing air. A little girl ran up to the Duchess and pointed at the thing behind her.
 
-It was her second-born child. Standing under the warm sun, her legs peeked out from under her petticoat dress. Its vivid crimson color lit up the surrounding bricks, painting them in a soft red shade. Her daughter appeared to like the dress gifted to her at the start of the week, she had worn it a couple of times already. With a tone befitting a young ducal lady, she said. “Mother, who is that dirty girl?”
+She was her second-born child. Standing under the warm sun, her legs peeked out from under her petticoat dress. Its vivid crimson color lit up the surrounding bricks, painting them in a soft red shade. Her daughter appeared to like the dress gifted to her at the start of the week, she had worn it a couple of times already. With a tone befitting a young ducal lady, she said. “Mother, who is that dirty girl?”
 
 “Gwen, what did I say about such remarks?” Her sigh vanished into the ether.
 
-“But, she’s all covered in filth.” Rosalyn had to woefully agree with her daughter. It was true after all. If you hadn’t known, then guessing that the girl currently hiding behind her poofy dress big enough to fit two of her, once had lustrous blonde hair would be the utmost unthinkable. 
+“But, she’s all covered in filth.” Rosalyn had to woefully agree with her daughter. It was true after all. Hadn’t you know, then guessing that the girl currently hiding behind her poofy dress, big enough to fit two of her, once had lustrous blonde hair would be the most unthinkable. 
 
-Drab and frayed commoner clothes, stained with all sorts of liquids in shades of dirt. An emancipated face that was permanently affixed into a look of wariness. The girl’s hollow purple eyes darted around as if looking for potential dangers.
+Drab and frayed commoner clothes, stained with all sorts of liquids in shades of dirt. An emancipated face that was permanently affixed into a look of wariness. The girl’s rare hollow purple eyes darted around as if looking for potential dangers.
 
 “She will be living with us for the time being”, I crouched down to her height, “Why don’t you say hello?” 
 
-It took several rounds of bathing before the water turned clear and there was no point in saving her clothes, those went straight into the fire. Her cheeks turned pink as she simmered in the oversized bathtub. The bubbles reflecting the rainbow appeared to hold her attention. 
+It took several rounds of bathing before the water turned clear and her clothes? There was no point in saving them, those went straight into the fire. Her cheeks turned pink as she simmered in the oversized bathtub. The bubbles reflecting the rainbow held her attention. 
 
-“Pretty, aren't they?” She turned her eyes toward Rosalyn. “Gwen used to be such a lovely little thing, but now she is all grown up, she says. I don’t think grown ups still sleep with their stuffed bunny plushie, right?” She didn’t laugh. Tough audience, she thought.
+“Pretty, aren't they?” She turned her eyes toward Rosalyn. “Gwen used to be such a lovely little thing, but now she is all grown up, she says. I don’t think grown ups still sleep with their stuffed bunny plushie, don’t you agree?” She didn’t laugh. Tough audience, she thought.
 
 A year had passed and Rosalyn’s worries did not come into fruition. She had heard some stories from the tea parties she hosted. It was her duty as a Duchess to hold extravagant events as a way to point the other nobles in the right direction. 
 
 What was once fashionable became stilted, and what was once considered wooden became new again. Honestly, Rosalyn only held the tea parties to sample new dessert recipes. The other stiff looking noble ladies could do whatever they wanted.
 
-“Oh dear, did you hear what that servant I personally raised did?” An irritating voice to her right said.
+“Oh dear, did you hear what that servant I personally raised did?” A grating voice to her right said.
 
 “You mean the young lad you plucked up from the slums? I cannot fathom what moved you to do that.” A smacking noise filled with cake was to her left.
 
@@ -4492,7 +4366,7 @@ The two pairs of heads, one black and one yellow, could always be seen together.
 
 “The prince? He’s too bright.”
 
-“Don’t you like smart people?”
+“Don’t you like smart people?” Is that right?
 
 “I meant appearance wise. He’s bright like the sun, it’s hard to look at him.” She squinted. “Besides, I don’t want to be in someone's shadow.”
 
@@ -4500,7 +4374,7 @@ The two pairs of heads, one black and one yellow, could always be seen together.
 
 “Mother, are you sure she is not my real sister?”
 
-“How rude.” Their laughter filled the gazebo.
+“How rude.” She flicked her daughter’s forehead. Their laughter filled the gazebo.
 
 Gwen nudged her elbow at the blonde girl. “And what about you? Anyone you fancy?”
 
@@ -4524,17 +4398,15 @@ Gwen had grown up holding everyone at an arms reach, she could count on her hand
 
 “Just finish your meal.” Her husband didn’t even glance up from his plate. “Where did that girl go?”
 
-“Dear, she has a name you know?” That girl or that child. Her husband alternated between those two depending on his mood that day. What a grump. It has been years since she began living with us and not once could Rosalyn remember him utter her name.
+“Dear, she has a name you know?” That girl or that child. Her husband alternated between those two depending on his mood that day. What a grump. It has been years since she took residence with us and not once could Rosalyn remember him utter her name.
 
-She could still picture the first time the two of them met. Like a rabbit standing in front of a lion, he stared her down with those oppressive eyes of his. She scolded him that night. 
+She could still picture the first time the two of them met. Like a rabbit standing in front of a lion, he stared her down with those oppressive eyes of his. 
 
 “Alden, notify the seamstress that Gwen uses, send for the tutor too”
 
 “As you wish, my lord.”
 
-Did he really need to act like that all the time? Rosalyn would sometimes find candy deep in his coat pockets. And it was of course her favorite flavor, strawberry. How come she married such a silly man.
-
-Did he really need to act like that all the time? The poor child nearly broke out into a cry. The months following their first encounter, she would sometimes find something unexpected in his coat. Deep in his pockets were several pieces of wrapped candy. All of them strawberry flavored, the child’s favorite flavor of course.
+Did he really need to act like that all the time? The poor child nearly broke out into a cry. The months following their first encounter, she would sometimes find something unexpected in his coat. Deep in his pockets were several pieces of wrapped candy. All of them strawberry flavored, the child’s favorite flavor of course. How come she married such a silly man.
 
 Peaceful days continued until her daughter knocked on her bedroom door one night. Lamp in hand, she opened the door at the incessant knocking this late into the night. Intending to scold her unruly daughter, she thought about what to say this time. However she couldn’t. Gwen’s face sparkled as pebbles ran down her cheeks. Some even dripped onto the floor as she didn’t care to wipe them away.
 
@@ -4542,7 +4414,7 @@ Peaceful days continued until her daughter knocked on her bedroom door one night
 
 Ever since that night, the usual chatter stopped reaching her ears. Silence had taken over like an oppressive veil. No longer did they laugh together, no longer did they go out together, it was even rare to see them in the same room.
 
-With no one to talk to, her daughter began becoming more and more prickly. Perhaps her real nature, much to Rosalyn’s chagrin. Her worst worry had turned true.
+With no one to talk to, her daughter began becoming more and more prickly. Perhaps her real nature, much to Rosalyn’s chagrin. Her worst worry had turned true after all.
 
 “I’m sorry your Grace, but it is not my place to tell you what happened.” The top of her blonde hair did little to abate her frustration. 
 
@@ -4556,13 +4428,15 @@ Did someone curse her family? It didn’t make sense otherwise. She prayed and p
 
 “Gwen, don’t you think you have been drinking too much lately?”
 
-“I can’t sleep otherwise.” She spat out, slumped in the chair, not caring in the least about her image. Why should she care if there was no one to notice? Her daughter’s comment rang in her head. Holding the overfilled glass of wine with decadence, Rosalyn wondered where she had gone wrong. At least she managed to get married to a decent man.
+“I can’t sleep otherwise.” She spat out, slumped in the chair, not caring in the least about her image. Why should she care if there was no one to notice? Her daughter’s comment rang in her head. 
+
+Holding the overfilled glass of wine with decadence, Rosalyn wondered where she had gone wrong. At least she managed to get married to a decent man.
 
 “What about your daughter?” 
 
 “Heh, what about her?” She drank half the glass in one swig, letting out audible glugs down her throat. 
 
-“How old is she now?”
+“How old is Estelle now?”
 
 Twirling the now empty glass with her fingers, rays of light scattered across her green dress. “Who knows?” She snorted.
 
@@ -4574,9 +4448,9 @@ She met the physician wandering in front of her daughter’s door. He was a trus
 
 “My apologies, your Grace. But I don’t think it would be wise to visit her at this moment.” It wasn’t what she had expected him to say. What did he mean by that? Opening the bedroom door, Rosalyn couldn’t move a single inch over the boundary separating the hall and the room. 
 
-Littered on the ground surrounding her like small rocks, were the letters her acquaintances sent to say their congratulations. Some were crumpled into jagged balls, some were torn in half without having been read, and some even had some teeth marks showing.
+Littered on the ground surrounding her like small rocks, were the letters her acquaintances sent to say their congratulations. The pretty envelopes that Alden had collected were crumpled into jagged balls, some were torn in half without having been read, and some even had some teeth marks showing.
 
-Standing in the middle of the white mess, her daughter held the pink baby clothes with a strange expression. Neither happy like when she was young, nor angry like when she had grown up, her daughter had a blank expression. Rosalyn closed the door without calling out to her and went back to her room to pray. Her vision was worsening at a rapid pace. She did not see her daughter leave the room that week.
+Standing in the middle of the white mess, her daughter held the white baby clothes with a strange expression. Neither happy like when she was young, nor angry like when she had grown up, Gwen had a blank expression. Rosalyn closed the door without calling out to her daughter and went back to her room to pray. She did not see her daughter leave her room that week.
 
 One day, as if wrapping everything up in an ironic bow, everything came crashing down. It was raining heavily that day. 
 
